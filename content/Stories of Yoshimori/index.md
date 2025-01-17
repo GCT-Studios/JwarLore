@@ -1,7 +1,9 @@
 ---
 source: Stories of Yoshimori
-title: A City in Conflict
+title: Stories of Yoshimori
 ---
+## A City in Conflict
+
 For a passing traveller Yoshimuri might look like every other city on the Jwar Isles.
 Crowded with traders, crafters and peasants fulfilling their all-days’ work.  
 But it has quite a rich history.  
