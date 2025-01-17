@@ -1,1 +1,0 @@
-Brave, strong and incredibly mobile Kenzo is the perfect soldier. Orochi’s touch has improved Kenzo’s ability to take the fight to the opponent and he does so with no care for his own safety. He strikes fast and more often than not he strikes first.

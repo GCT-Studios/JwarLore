@@ -1,4 +1,0 @@
----
-source: New Dawn rulebook
----
-The seas here are dangerous even to the most experienced and brave of mariners. The fierce wind Kami who keep watch over these turbulent waters are known to appear with little warning and great speed. Their rage manifests itself in different ways but it is always deadly; from sweeping an unsuspecting sailor into the freezing waters to be claimed forever by the deep to inciting the ancient Kami of the deep waters into such a fury that they smash great ships into kindling, claiming their cargo for the crabs and the fish. Such brave people as the whale hunters of the Yoshida still launch expeditions into these waters to claim its prizes. The meat from these lords of the deep is a vital food source for the Yoshida Clan, and the fat from these gargantuans, much sought after, is used in all manner of items, medicines and procedures.

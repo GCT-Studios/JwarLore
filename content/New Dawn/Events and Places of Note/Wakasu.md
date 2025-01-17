@@ -1,4 +1,0 @@
----
-source: New Dawn rulebook
----
-This volcanic island has the ‘Koun no Yama’ mountain range sitting in the north of the island like a crown, dense and lush forests in the south and centre and the great city state of Jima cradled in a western bay. The Volcano of Mount Fuja hasn’t erupted in living memory but it is not the only giant of nature to inhabit the island. The Buto people have called Wakasu home long before the first settlers from the mainland landed here. Although most of the Island’s populace live in or around Jima, and most of the inhabitants are now made up of non-indigenous peoples, there are still a few isolated Buto tribes scattered in the deeper parts of the forests that have resisted being absorbed by the lure of Jima.

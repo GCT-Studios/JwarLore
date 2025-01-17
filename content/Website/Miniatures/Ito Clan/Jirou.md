@@ -1,1 +1,0 @@
-The Ito are not known for their courage like the stoic Bear or fearsome Dragon, however that is not to say that their troops are not filled will a sense of pride and purpose when urged on for the Ito Mon. Jirou flies the standard with honor inspiring his comrades against those who oppose the Snake. 

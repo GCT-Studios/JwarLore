@@ -1,4 +1,0 @@
----
-source: New Dawn rulebook
----
-A dangerous place even for the natives that have lived here for generations upon generations, the ancient jungle is full of all kinds of threats, from the flora to the fauna everything can and will devour the unsuspecting traveller in a moment given half the chance. Insects that live here are the size of small dogs, the flowers come in every colour under the sun and more making the environment every bit as beautiful as it is dangerous. The jungle covers much of Izu and the raging rivers springing down from the ‘Crescent’ constantly threaten to flood the north of the island as they have done the south.

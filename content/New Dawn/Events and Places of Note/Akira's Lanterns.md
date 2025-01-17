@@ -1,4 +1,0 @@
----
-source: New Dawn rulebook
----
-This series of enormous pyres begins on the most easterly point of ‘The Hook’. In an unbroken chain it crosses the back of the Ro-Kan Mountains; the final pyre, the largest of them all, is located at ‘Akira’s Look’. For two hundred and forty five uninterrupted years, since the short reign of the divine Emperor Takawa Akira, soldiers of the Prefecture of Ryu have manned the garrisons of Akira’s Lanterns. Although this practice is under threat as resupplying the garrisons is difficult due to the increasingly bold presence of the Cult of Yurei and Shiho rebels in the east. They still stand though, ready to be the first warning to the Empire of any imminent threat from the East.

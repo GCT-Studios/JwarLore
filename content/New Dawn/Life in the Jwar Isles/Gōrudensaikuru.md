@@ -1,5 +1,0 @@
----
-source: New Dawn rulebook
----
-The Golden Cycle is a more recent celebration and is particularly popular amongst the followers of and subscribers to the Five Fortunes. They believe that throughout the cycle of the Golden Harvest the Kami of Luck, Prosperity, Good Fortune and Health are most active and bless all who seek to appease them.  
-In Jima, where this practice was first observed, the streets are adorned with great effigies of the Kami, the walls of the Luck Houses are covered in all manner of yellow and gold fabrics and decorations. Lanterns light every street and at night the city looks like the Sun herself has come to visit. This is said to attract the Kami to the patrons of the city and during the Cycle it is common for people to wear an item of yellow, or gold for the more wealthy, on their person.

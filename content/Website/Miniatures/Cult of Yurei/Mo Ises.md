@@ -1,1 +1,0 @@
-How Mo Ises was drawn into the cult is unknown. He is though a deadly foe, often misjudged by his opponents they remain unaware of the threat he poses until they feel the cold of steel at their backs. The power of his words have been enhanced by whatever bargain he made with Yurei.

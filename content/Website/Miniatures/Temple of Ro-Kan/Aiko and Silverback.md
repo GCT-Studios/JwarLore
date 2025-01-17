@@ -1,1 +1,0 @@
-The Temple of Ro-Kan gain some real punching power, the mighty fists of a Gorilla. Fiercely protective of Aiko, the Gorilla is a fearsome opponent at the best of times, when he is imbued by Aiko’s blessing he becomes almost invincible.

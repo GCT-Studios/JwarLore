@@ -1,4 +1,0 @@
----
-source: New Dawn rulebook
----
-These dragons are the cause of the dramatic variation in climate and weather patterns across the Jwar Isles. Legend tells that once the pair were lovers but their union filled the world with storms and floods of cataclysmic proportions. They were separated by the Kami who regretfully split the pair apart for the good of those that dwelled on the land. Imoogi, tricked, still searches the seas and oceans for Mireu. Jwarians believe that his searching brings strong currents and that wherever they flow Mireu, the benevolent sky dragon, follows yearningly after, doomed never to be able to catch up and yet her sorrow brings the rain of life on which the people depend.

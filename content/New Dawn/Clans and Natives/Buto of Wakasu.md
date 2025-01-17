@@ -1,7 +1,0 @@
----
-source: New Dawn rulebook
----
-The Buto of Wakasu are verging on giants, their great height matched only by their girth. A warrior race, they had for as long as time can remember controlled the Isle of Wakasu. They defended their lands with a combination of brute strength and well developed skills in their martial discipline of Jumo. Even unarmed the impressive Buto are a match for an armoured samurai.  
-
-The Buto have always enjoyed themselves though, drinking and eating in excess. Over time they allowed small settlements to gain a foothold in exchange for some luxury items they had never encountered. The Silvermoon Trade Syndicate were quick to pick up on the Buto’s natural affinity for such. They invested in recruiting Buto to their growing city of Jima with offers of a lifestyle the Buto thought they had always craved.  
-Now the Buto are divided, subsumed by the growth of Jima. This once proud race appear nothing more than a hired police force, an army for hire. They fight in the arenas of Jima for the amusement and gambling opportunities of baying crowds from across Jwar. Now only a handful of tribes exist that adhere to the Buto’s once proud traditions. Is it possible that a people once so proud could have truly forgotten their ancestry?

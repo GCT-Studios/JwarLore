@@ -1,1 +1,0 @@
-The Harionago is a truly terrifying addition to the ranks of the Cult. An ancient evil that for generations has preyed on unwary travellers across the Jwar Isles, her new found purpose to further the goals of Yurei is a frightening prospect.

@@ -1,4 +1,0 @@
----
-source: New Dawn rulebook
----
-A collection of small islands in the south west, from which as the name implies many rich spices are harvested and form the main trade income for the inhabitants. The Carp clan have been entrusted with monitoring and regulating the people, and the trade, of the Spice Isles. The Isles remain something of a mystery to all but the Carp. Rich in the increasingly demanded poppy flowers from which the drug opium, touted for its medicinal purposes is refined. Not to say that representatives of the Swan clan, famed for their scholarly nature, and the Temple of Ro-Kan have questioned the long term effects on users physical and spiritual well-being respectively.
