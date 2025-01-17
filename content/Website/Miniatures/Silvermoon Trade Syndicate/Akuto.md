@@ -1,0 +1,2 @@
+Many of the Silvermoon Shatei are little more than street thugs but do not doubt the usefulness of these scum to the Silvermoon as fighters.  Akuto learned to fight on the streets and the prisons around the worst places in the Jwar Isles.  His devastating and ruthless style has left many enemies crippled and ruined.
+While he dominates those who cannot defend themselves, Akuto often needs help against trained fighters, as his lack of formal training shows through.

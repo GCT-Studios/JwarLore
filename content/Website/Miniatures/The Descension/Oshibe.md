@@ -1,0 +1,1 @@
+Traditionally Suzume relies on unparalleled speed to gain a position of advantage. However, when faced with a formidable foe, they can sometimes struggle. Oshibe is a Bushi that helps her fellow sparrows face down fearsome enemies. Her combat training has also enabled her to match the best the mortals offer, as long as she fights with a friend.

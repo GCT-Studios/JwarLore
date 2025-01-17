@@ -1,0 +1,1 @@
+Driven on by a purpose few could match, Matsu fights for her lost sister. The shugenja training she has received for years is now being channelled and focussed in ways her mentors never intended. She balks at no fight against any opponent, seeing any battle as an opportunity to hone her abilities. Allowing her to one day take down her real adversary, Itsunagi Ito.

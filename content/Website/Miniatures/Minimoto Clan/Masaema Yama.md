@@ -1,0 +1,1 @@
+The man, the myth, the Mountain! Not called this because of his stature but for his steadfastness and determination in battle. Yama refused to fall despite receiving the most grievous of wounds, wounds that would have toppled the most formidable of samurai.  Younger warriors seek him out on the battlefield to shore up their resolve.

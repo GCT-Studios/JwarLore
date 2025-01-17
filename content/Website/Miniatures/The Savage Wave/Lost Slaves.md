@@ -1,0 +1,1 @@
+It is unknown when the beasts of the wave started taking captives. These are no hostages though, they are put to work or put to the sword by their less than benign captors. The blood of the Oni sends the slaves into a rage on the battlefield, allowing them to achieve feats of strength they would not have dreamed of back in the fields.

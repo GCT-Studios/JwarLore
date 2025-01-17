@@ -1,0 +1,5 @@
+---
+source: New Dawn rulebook
+---
+Currency in the Jwar Isles is a relatively new concept. The principle of bartering and swapping goods and services in return for goods and services has long been practised across the Empire. A dominant form of currency has however taken a foothold in the Jwar Isles, the moon. The coin named so for the hole in the middle shaped either as a crescent, half or full moon to denote rising value and then valued again based on its material of copper, silver or gold. This currency is created, maintained and supported by the Silvermoon Trade Syndicate; a banking organisation that operates from the city of Jima on the island of Wakasu.  
+The Silvermoon Trade Syndicate have their fingers in many rice cakes and all debts lead back eventually to Jima; they manage these debtors as tools to broker power, which in turn allows them to continue with more unsavoury dealings across the Jwar Isles and increasingly beyond. This hidden source of strength is also backed up with the more visible and imposing presence of the army of Buto warriors that serve the Silvermoon Trade Syndicate.

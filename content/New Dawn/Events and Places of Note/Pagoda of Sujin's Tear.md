@@ -1,0 +1,4 @@
+---
+source: New Dawn rulebook
+---
+This small and unassuming pagoda is located in the sunny climes of southern Jwar. It is built on a small island in the centre of a lake, not hugely unusual except for the fact that the water of the lake surrounding the pagoda's island is frozen solid. The pagoda spends its time in perpetual winter, as if trapped in the cycle of the Lonely Moon. Now largely abandoned by most who fear its unnatural qualities, yet it has long been a discrete pilgrimage site for the Yuki no Maio of the Minimoto clan, who revere the Kami trapped here long ago by her peers. These snow witches rarely leave their mountain homes but their order’s histories tell that Suijin’s Tear will one day enable the return of Suijin bringing great power to them and the great bear of the Minimoto.

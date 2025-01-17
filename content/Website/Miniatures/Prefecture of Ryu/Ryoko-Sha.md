@@ -1,0 +1,1 @@
+Ryoko-Sha is a samurai with distinct and unique skills. His understanding of strategy and tactics has allowed him to channel Ki to control the ebb and flow of battle. He is of utmost importance to the Takashi family, his Temporal Barriers are relied upon to keep family members safe.

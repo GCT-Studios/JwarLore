@@ -1,0 +1,4 @@
+---
+source: New Dawn rulebook
+---
+The Yoshida family have ruled the island of Amakusa for centuries and were granted clan status by the ruling clan of the Prefecture of Ryu in 123 SK after the first Yoshida led a small but experienced fleet of ships in defence of the Isles against barbarians coming from the east. Though outnumbered their knowledge of the waters and tenacity bought enough time for the cities of Jwar to stockpile food and erect defences to repel the invaders. Since those times the Yoshida keep themselves to themselves, occasionally trading with Jwar for resources, their place at court rarely taken except at the most important of occasions when failure to do so would cause insult.
