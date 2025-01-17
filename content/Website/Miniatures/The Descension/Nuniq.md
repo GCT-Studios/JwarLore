@@ -1,0 +1,1 @@
+An amazing hunter and tracker, Nuniq knows the mountains she calls home better than any other. Enemies to the tribes must tread carefully if they don’t want to lose men to the hidden traps and snares, obvious to the tribes people but undetectable to outsiders. Her eyes miss nothing, whether spotting prey, animal or human.

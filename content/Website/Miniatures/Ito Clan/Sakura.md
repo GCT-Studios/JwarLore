@@ -1,0 +1,1 @@
+A priestess of Orochi, she has dedicated her life to the snake kami and has been favoured by beginning the transformation. With the merest of looks Sakura can corrupt a man, turning the blood running through his veins into poison.

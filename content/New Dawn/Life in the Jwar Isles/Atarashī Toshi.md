@@ -1,0 +1,5 @@
+---
+source: New Dawn rulebook
+---
+This is the festival of the New Year and is celebrated more in the rural villages and hamlets. The New Year’s festival was originally a Subarashī Baransu festival in its purest form and is still so in the less populated areas where its teachings still hold sway over the peasants. The festival lasts from the 6th hour of the last day of the cycle of the Lonely Moon and when celebrated by the more pious consists of six hours of contemplation and reflection on one’s actions over the past year.  
+Twelve candles are lit and every 30 minutes one is extinguished, this represents the passing of each cycle over the year, giving the practitioner time to reflect and learn from that time. Then once the last candle is extinguished, coinciding with the start of the first day of the cycle of White Dawn, a great bonfire is lit and the celebration of the New Year begins, just as life brings great light from the darkness.

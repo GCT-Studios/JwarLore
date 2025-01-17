@@ -1,0 +1,16 @@
+---
+source: New Dawn rulebook
+---
+Tonight I was beset by the strangest dreams. I found myself standing under the arch of the sky, arms outstretched and pointing from one horizon to another. In the distance there was a terrific howling. The noise rolled over the plain toward me, flattening the grass and bending the trees. It forced me to my knees; I was whimpering and grovelling in the dirt, my hands covering my ears.
+
+I felt the roar wash over me; I sensed it in my soul. It tore at me, pushing me even further into the ground. I closed my eyes and screamed endlessly, but my voice was lost in the cacophony. And then, as quickly as it had started, it was gone. And I was alone in the hinterland under the night sky. The stars shone icily above in a celestial dance, the nature of their movements I failed to fathom.
+
+My dream shifted, and I was floating in the ocean. Waves broke over me forcing me under the water. Large terrifying shapes swam around me, their fins breaching the surface, they came closer until their heads broke the water and I stared into their eyes: soulless eyes, black eyes, like a puppet’s eyes...and then as one they attacked and ripped the flesh from my bones, their teeth as savage as any Samurai’s sword. I tried to vocalise the horror that befell me, but the sea creatures had done for my throat. My blood blossomed outward, and became the flower of my death.
+
+I awoke in my bed. A fire burned in the hearth and the Geisha sat calmly beside me. She was oblivious to the chaos that went on in my mind. I fail to reason what it is that hounds me, what it is that attacks me thus, night after night. I suffer untold and endless torture every evening. I die a thousand terrifying deaths and yet each day I am reborn, but I am weary and my recall weak.
+
+My memory an unfaithful servant, which is why I commit everything to my diary, so that it will remain in existence for ever. The palest ink is stronger than the sharpest memory they say. I am glad that it is so, because I have become somewhat _confused_ as of late.
+
+I struggle to remember the finer details of things, the subtleties of situations that have long transpired. The nuances of the past are a blur to me. I awake in strange locations, and I have no recollection of how I came to be there, or what I did upon my arrival. Perhaps the Geisha by my side knows more about this than I suspect, but conversation is not in her nature. Having her lips sewed shut makes her of the, _quieter_, persuasion... Or maybe I am just tired.
+
+My work keeps me up for days on end, no sleep, no respite from the pressures of weaving my web, pulling the strings. Bringing it all to its glorious conclusion and making them all dance to my song. I long to capture their souls and unleash my Kairai upon the Isles, the revolution is upon you, you fools, and I will stoke the flames of rebellion and watch the very dead rise. Nightmares be damned I say! When the Cult rises we will be _the_ bad dream. The one you never wake from. The one that drives you mad...

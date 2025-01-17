@@ -1,0 +1,8 @@
+---
+source: New Dawn rulebook
+---
+He stood looking down at the city of Jyoto, the city standing resolute in the mountains. He had assembled a warband of soldiers that he knew he could trust to aid him on this most important of undertakings. That he was chosen by the Old Bear to lead this force and complete this mission was the proudest moment of his life. The contents of the message he carried were more important to him than not only his own life but those of his men also. Yet he knew not a word of what it contained. He of course knew his destination: the Garrison of the Damned. He could have a decent guess that the message related to the demons of the Savage Wave.
+
+He had been told that his knowledge of the Iron Mountains and, particularly, the Blood Pass would prove vital. He had been told also to expect the tengu and hill tribes to hinder his progress, to which he felt dismay. Why would they have any interest in the Garrison? He had no answer. If any bird, man, or demon tried to stop him they would die at the whim of his tetsubo. Like-for-like he would stop any other he met from relaying their own messages through the pass.
+
+He was proud as his men walked with the confidence and assurance expected of the bear clan's forces. The ore in the walls of the pass glistened a sumptuous deep red, more beautiful than the clearest of rubies, in the last rays of the day's sun. As a force of tengu elegantly swept down into the pass ahead, he momentarily regretted these noble creatures' blood he was about to spread. His men enveloped him in a protective formation accompanied by a roar of, “Protect the messenger!”, that rumbled through the pass.

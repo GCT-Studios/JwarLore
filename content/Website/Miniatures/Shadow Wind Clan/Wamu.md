@@ -1,0 +1,1 @@
+Another worm to emerge from the perilous, relentless training of the Kaze Kage Zoku, Wamu is a swift and nimble novice assassin. Like her fellow novice Wamu is able to employ the teachings of her mentors to great effect. A competent warrior and a promising student of the ways of the ninja. 

@@ -1,0 +1,1 @@
+Haruto is a rarity among the Ito as he is well-liked and often overlooked when others are targeted for familial assassination. Perhaps it’s because he seeks only to do his duty as a samurai? Thus removing himself from all the incessant Ito infighting? Or maybe he’s canny enough to project one and cloak the other?

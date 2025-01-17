@@ -1,0 +1,24 @@
+---
+source: New Dawn rulebook
+---
+It is late and a fever burns on my brow. My thoughts run amok. They are jumbled together, tripping over one another, like a troupe of nightmare harlequins. So many ideas, so many plans, it becomes increasingly difficult to sort one from the other, to get them onto these pages. These midnight writings will be my legacy, a journal of discovery charting our success, as we grow ever stronger.
+
+I find myself in the city of Eddo, a mere stone’s throw from the harbour. It is here that the lifeblood of the Isles ebbs and flows to all the parts of the realm. A realm that will one day be ours. No more shall the Prefecture and Temples govern and do as they see fit. Their days are numbered. A new power is on the rise, the Cult behind the mask.
+
+We shall erode their confidence slowly, like the tiny water drop erodes the stone. As it drives a man insane when allowed to fall on his forehead, hour after hour, day after day, until that point that his sanity shudders and dies. There are many paths to power, many ways to bring around a change in the order of things.
+
+I can safely say that never in a hundred years, do they suspect that we are here among them. Walking and talking and living such as they do. This power we possess, the power to slip unnoticed under the castle walls as it were, is not to be underestimated. We will bring them down from within. That is how we change the tyranny and oppression -- from within. Not a fully fledged attack of flanks and archers, shot and sappers. That would be futile. No my pretties, that is not the way of the Cult. We shall strike fear into the hearts of men, women shall weep for their newly risen husbands, and children shall cower in the dark when they hear our name. It is better to be feared than loved, a maxim I wholly subscribe too. A mantra to hang my masks on, as it were.
+
+Love, who needs love? Love is for moon struck lunatics with hope in their breasts. There is no _hope_ for them, only our knives in their chests. It is fear that is the real power. Fear and loathing of what we are, of what we have become. And of what one day, we will be.
+
+There are ways to power that cannot be attributed to good fortune or prowess. There is the path of infamy, a nefarious route to divide and kill them all. We shall sow the seeds of terror and anarchy. Stalking their streets, killing when we can, striking down those they see fit to hold in high regard. And then the beauty of it all, we turn their loved ones against them. Fathers and sons, Mothers and daughters, all have a part to play in the grand scheme of things. The dead, the unwanted, bring them to me! Let them flock to our banner, let them join our cause, let them be glorious and unite in Death!
+
+For there is no escape from Death. No escape from His sweet cohorts and consorts. It is all around, a power far beyond any that they can understand or reason with. You cannot bargain with Death, you cannot throw yourself at our mercy, for we have none. We are merciless in our execution; the masque will hold sway over all it sees. An army of corpses rising from the grave, a legion of the damned to rip out the heart and lungs of these Isles and bring down the monks and soldiers of the Ryu...
+
+But for all my control, i sometimes feel as if I am being controlled. It is impossible, i know, but I am left with a fearful suspicion that all is not as it should be. This i hope to deal with in time, for now though, our plans must forge ahead. The path to excellence is only achieved by destroying the human condition. For humans are weak, under willed and overconfident. Arrogant and prone to judge those that fit not their mould, they judge them harshly, as if they are above all other, as if they are vastly superior in intellect and constitution! I say to the hell‘s with that -- I look down my blade at them! They are not fit to lick my boots when they are alive, but when they are dead? They will lick my boots all day long if i so wish it. Our powers grow, our ranks are swelling, and who dare oppose the power of the Masque?
+
+My spies tell me that all is not well in the Isles of Jwar that a new kind of beast is stalking the land, a ferocious killer of men that harkens from a history of a time to come. If they are as formidable as they say they are, as savage and bloodthirsty as I am led to believe, then i must with all haste see this phenomenon for myself.
+
+Can you imagine if this wave, this savage wave, that is so powerful while alive, had been taken beyond the pale, to the land of Death? I shudder in anticipation on putting a masque on one of them and seeing just what sort of formidable creation we are likely to spawn.
+
+I grow tired now and seek to rest if i can. The nights are hard for me, I feel overwhelmed with the enormity of my task. But i think that it is time that I Kato Kubiashi, the Puppet Master, found solace in slumber.

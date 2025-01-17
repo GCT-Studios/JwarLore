@@ -1,0 +1,22 @@
+---
+source: New Dawn rulebook
+---
+I was not always like this. It feels foreign to me to write this, but it is the truth. I cannot reconcile the man before me with the child that I once was -- a child like most others; happy, playful, mindful of my parent’s wishes. All of this just like a normal person, until Fate reached out and ripped me from that comforting existence and hurled me into the depths of the abyss. And it is here in the dark that I have spent my days biding my time. Where my heart was once filled with joy and love, it has now withered and died on the branch, like a rotten fruit.
+
+Now I fill my soul with visions of revenge and murder. Blood is the only commodity I seek to trade in; nothing more will slake my thirst for revenge. Not revenge meted out by the sycophantic Judges of the Prefecture either, but revenge from an entirely different and darker age. Death, dishonour, and eye for an eye, it is so simple, so sweet, and so pure. It is Pagan in its simplicity. Death to the rulers and all their cohorts! All the pious monks and their Masters hiding in their crumbling temples and all the Samurai, a plague on their houses...
+
+My hands tremble with the excitement of what lies ahead. All my plans are slowly crawling to fruition and are ready to bear the blackest of rewards. It has taken me years of planning and careful preparation. But how did it come to this, you may ask? Why do I find myself scribbling in the quiet of my workshop in the dead of night when all others are sleeping in the safety of their beds? Because I am the Puppet Master, and all shall bow before me. But yet...even I find myself somewhat confused and perplexed...
+
+Dark days and even darker dreams, something pulls at my psyche and I know not what it is. My sleep is troubled; disturbed... I wake to the sound of my own screams, my bed soaking with sweat. An unseen force plagues me, harries me, seeks me always, and never lets up. I dream I am being chased by an evil, yet faceless being, a power from beyond our very world. I seek solace and refuge in the arms of the dream weed; I find succour in the numbing effect it has on me.
+
+If my plan is to succeed then I must be able to focus on the task at hand. Nothing can be allowed to sway me from my destiny. They shall pay for what they have done to me; I shall turn their sons and daughters against them. With the power of the masks at my disposal I shall eradicate this edifice of power once and for all. I shall tear down this way of life that they have so carefully constructed.
+
+I walk through their cities at night. I walk among them but I am not part of them, the crowds make way for me as if they suspect that there is something wrong with me. As if something is not quite right...
+
+I see their decadence and opulence all around me. The poor are but cattle to them, to live and die at their whim. The poor wait on them hand and foot, they worship at their boot heels, but I shall show them another way, a better way. I shall build an army form their dead and their unwanted, in life they were nothing to them but in death? In death they shall be glorious! Magnificent! They shall be mine...
+
+My midnight ramblings take me all over this once great city; I slip past, unseen in the gloom like a rat carrying a particularly virulent disease. I pace and think, and fear for my sanity. My only companion these days was a gift from the Geisha. A beautiful hand-wrought pipe that I smoke constantly. I am consumed with it; I cherish its heft in my hand and the sense of release it brings me when I smoke it; as if the very vapours themselves are alive to quell the voices in my head.
+
+And when I return home from my wanderings I plot and plan, I scratch out my thoughts constantly till the sun climbs through my shuttered windows and forces me to rest. And when I slumber I am again filled with voices and visions of something other than my own. I have foreseen huge armies of my puppets, washing over this land like a cleansing Tsunami, destroying all that lies in its path and leaving nought but death and destruction in its wake. My puppets shall lead them all in a merry dance of death, a mocking tribute to the way they live life in the courts and the temples.
+
+And with the Geisha by my side and my pipe on my lips, there are none who can oppose the power of the Puppet Master. Soon shall you all wear the mask of obedience, the mask with the power to bring the souls of the dead back from beyond the grave...

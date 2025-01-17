@@ -1,0 +1,1 @@
+Those who taste the blood of a demon are driven mad by the raw alien power coursing through their veins, warping their senses and souls. Jun was already mad. An evil and impure man the Oni’s mad dog to set upon their enemies, savage and loyal to his masters he will do anything for the next taste, putting himself in harm’s way without a thought for his own safety.

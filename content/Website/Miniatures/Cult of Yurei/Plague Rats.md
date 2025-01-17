@@ -1,0 +1,1 @@
+Man is not the only mortal open to the corruption and seduction of Yurei’s promises. Those that lie in the filth and dirt are easily swayed to its charms. The Plague Rats are a perfect tool in the unfathomable plan of shapeless evil, spreading disease and death through the population like wild fire, lurking in the shadows ready to pounce on the weak or vulnerable. 

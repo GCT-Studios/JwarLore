@@ -1,0 +1,1 @@
+The Temple Bushi are chosen from the ranks of the Ito’s ashigaru for skill and prowess shown on the battlefield. Only the best are selected to guard the temple of Orochi and it is considered a great honour to be chosen.

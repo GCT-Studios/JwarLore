@@ -1,0 +1,4 @@
+---
+source: New Dawn rulebook
+---
+The last stand of the Shiho came far north of Ryu at the swamps of Sagoya. The remnants of the Shiho clan, a small force of 200 men including all the remaining Shiho clan males, except for the Black Eagle, were present. The Shiho were defeated and scattered to the foot hills of the Ro-Kan Mountains. In a display of merciless ruthlessness Takashi Hida, the head of the Dragon clan ordered the execution of all Shiho captives, perhaps in the memory of Akira, who died five years earlier at the first battle of Segway, thus ending the Dragon Wars and placing the Dragon clan firmly at the head of the Prefecture of Ryu.

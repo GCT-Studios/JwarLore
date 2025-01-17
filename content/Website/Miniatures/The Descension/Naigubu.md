@@ -1,0 +1,3 @@
+A venerable and revered shisai, old as the mountains themselves. Though sight has left him he sees all, knows all; for the birds are his eyes, ears and wings now. He knows the name of wind, of fire, of earth, wood and steel, he knows the nothingness of the void. Such is the respect he is afforded by the Kami he is able to bless his allies or force those of the darkness away, prevented from nearing him. Sensitive as any temple master he is able to bend or steer the flow of ki.
+
+The Father of the Mountains is holding the spiritual hearts of his people and will offer the lives of his people for the greater good.

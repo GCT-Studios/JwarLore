@@ -1,0 +1,5 @@
+---
+source: Website
+title: Prefecture of Ryu
+---
+The Dragon Clan won the rights to colonize the Westward Isles in a series of duels with their rivals, the Shiho Clan. However, when the Emperor’s vessel expired, and his young heir, too young and inexperienced to concern himself with the petty disputes at the fringes of his lands, the promise of sole settlement rights died with him. The newly formed **Prefecture of Ryu** found themselves yet again in conflict with their old enemies, the Shiho Clan. Now, the Prefecture’s grasp of power is weakened, due to the recent Tsunami. Their forces are in disarray, they are fighting on all fronts in the aftermath of the disaster. But still the men and women of the Dragon are ready to take their place at Destiny’s table, uniting the human world by defending it against all threats.

@@ -1,0 +1,1 @@
+The defenders of the Golden Dragon Shrine are some of the finest warriors in the Jwar Isles. Each one not just a capable Samurai but a devout Michi practitioner. The nature of the Shrine and the things it protects are not known, even to the Daimyo of the Dragon Clan but the guardians would each give their lives to protect it.
