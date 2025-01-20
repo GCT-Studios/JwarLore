@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Fai-Ginn’s class of miscreants and neer-do-wells has many promising graduates, but his current crop of pickpockets, scamps, rascals, and troublemakers boasts some of the most nefarious urchins Jwar has ever seen. Several Gumi from the Silvermoon Trade Syndicate are already lining up to recruit them to their cause, with both Nachin and Kibin working even harder to prove their worth to the Silvermoon. They can slip through the city unnoticed by nearly everyone and have already seen some fighting despite their stature. Nachin specialises in distraction, allowing Kibin to use their finely honed skills and stiletto to pierce the armour of patrolling ashigaru before becoming lost in the crowd.

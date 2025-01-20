@@ -11,7 +11,7 @@ export default (() => {
 		const source = fileData.frontmatter?.source
 		var sourceStr
 
-		if (source != null){ sourceStr = source + ' ' }
+		if (source != null){ sourceStr = source }
 
 		return <p class={classNames(displayClass, "source")}><em><strong>Source: </strong>{sourceStr}</em></p>
 	  } else {

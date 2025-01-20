@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Up in the Ro-Kan Mountains, there is rarely a need for an organised militia as most villages are protected from bandits and outsiders by the monks of the Temple. This works well enough that most organised groups know not to target villages up in the mountains. Still, the villages need protection, and most have a group of their people to watch the village at night, stop any excessive conflict between families and keep back wild animals. They solve most of their problems by bringing shouting villagers and fire to scare off the upland bears and mountain gorillas. They lack real training, and unfortunately, layers of straw armour may protect them from snake bites and even simple knives and sticks, but they are no match for a katana.
