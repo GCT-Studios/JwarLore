@@ -8,10 +8,12 @@ export default (() => {
   
 	  if (text) {
   
-		const cost = fileData.frontmatter?.cost
+		const source = fileData.frontmatter?.source
 		var sourceStr
 
-		return <p class={classNames(displayClass, "source")}>{sourceStr}</p> 
+		if (source != null){ sourceStr = source + ' ' }
+
+		return <p class={classNames(displayClass, "source")}><strong>Source: </strong>{sourceStr}</p> 
 	  } else {
 		return null
 	  }
