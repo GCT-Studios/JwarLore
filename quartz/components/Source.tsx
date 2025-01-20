@@ -13,7 +13,7 @@ export default (() => {
 
 		if (source != null){ sourceStr = source + ' ' }
 
-		return <p class={classNames(displayClass, "source")}><strong>Source: </strong>{sourceStr}</p> 
+		return <p class={classNames(displayClass, "source")}><em><strong>Source: </strong>{sourceStr}</em></p>
 	  } else {
 		return null
 	  }
