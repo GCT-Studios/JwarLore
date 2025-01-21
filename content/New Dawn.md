@@ -12,6 +12,6 @@ title: New Dawn Rulebook
 ## [[Jima Journal|Port of Jima]]
 ## [[Okyo Journal|Cliff City of Okyo]]
 ## [[Jyoto Journal|Iron City of Jyoto]]
-# [[The Factions of Bushido/index|The Factions of Bushido]]
+# [[Factions of Jwar/index|The Factions of Bushido]]
 # [[The Awakening|Story: The Awakening]]
 # [[A Glorious Death|Story: A Glorious Death]]

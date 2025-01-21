@@ -1,5 +1,4 @@
 ---
-title: The Factions of Bushido
 source: New Dawn rulebook
 ---
 ## [[The Key Players]]
