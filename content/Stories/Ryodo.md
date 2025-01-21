@@ -3,9 +3,9 @@ source: Risen Sun tournament pack
 ---
 “Greetings, your majesty!”
 
-The deep, rumbling bellow of Master Po could sometimes strike as hard as his Wasp Punch, but this time he sounded jovial and genuine as he addressed the approaching Kitsune.
+The deep, rumbling bellow of [[Master Po]] could sometimes strike as hard as his Wasp Punch, but this time he sounded jovial and genuine as he addressed the approaching Kitsune.
 
-“I am master Po. My fellow masters are...” he trailed off as the Kitsune Queen swept past him without a sideways glance. Though Tsutsumi had known exactly where she was the entire time, he feigned surprise well enough to be polite. Blind as he was most outsiders were not used to him being so aware of his surroundings, never mind his ability to bullseye a target 20 paces away with a thrown pencil, or hit a daydreaming unsui with a banana peel from across the room.
+“I am master Po. My fellow masters are...” he trailed off as the Kitsune Queen swept past him without a sideways glance. Though [[Tsutsumi]] had known exactly where she was the entire time, he feigned surprise well enough to be polite. Blind as he was most outsiders were not used to him being so aware of his surroundings, never mind his ability to bullseye a target 20 paces away with a thrown pencil, or hit a daydreaming unsui with a banana peel from across the room.
 
 “Will you favour us with your song?”
 
@@ -21,9 +21,9 @@ Master Morita greeted the Queen similarly to Po and was likewise indulged with a
 
 A gasp from the Queen at recognition of the next monk cut short the introduction.
 
-“Master Koju!” exclaimed the Queen, “I hope we are not keeping you from your work?”
+“[[Master Koju]]!” exclaimed the Queen, “I hope we are not keeping you from your work?”
 
-“Kota!” The Queen clapped her hands twice. A young Kitsune appeared from elsewhere with a chair for the Queen and, surprisingly, one for Master Koju.
+“[[Kota]]!” The Queen clapped her hands twice. A young Kitsune appeared from elsewhere with a chair for the Queen and, surprisingly, one for Master Koju.
 
 The fox-featured woman, just moments before the very image of refinement and superiority was almost flustered now, offering wine (somehow obtained from the cellars at Eddo), Inari-age, and other delicacies that Kota was holding out.
 

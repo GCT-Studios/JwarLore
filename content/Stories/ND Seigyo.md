@@ -1,7 +1,7 @@
 ---
 source: New Dawn rulebook
 ---
-Harukichi wiped the noodle juice from his chin with a neatly folded and beautifully embroidered silk napkin. His brow furrowed as he listened to the report from the young shatei knelt before him, head bowed in respect.
+[[Harukichi]] wiped the noodle juice from his chin with a neatly folded and beautifully embroidered silk napkin. His brow furrowed as he listened to the report from the young shatei knelt before him, head bowed in respect.
 
 Harukichi wasn't a lord, but to his gumi he was the undisputed leader and he made the decisions.
 

@@ -1,5 +1,5 @@
 ---
 source: Website
 ---
-After a meeting of Masters, The venerable Master Ekusa was nominated by Master Enos to become Grand Master of the Temple.
+After a meeting of Masters, The venerable Master Ekusa was nominated by [[Master Enos]] to become Grand Master of the Temple.
 A single leader to combat the many threats the Temple faces with the Savage Wave, Cult of Yurei and strife among the Samurai Clans (Again) being exacerbated by the return of the Kinshi Temple from out of time and existence. Ekusa still sits atop his old friend Kame Sam, but the newly opened Ki energies have invigorated the old master, he now levitates above the tortoise shell and he looks less than half his true age. With all the resources of the Temple at his disposal, will Ekusa turn the tide?

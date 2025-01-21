@@ -4,7 +4,7 @@ source: Website
 ---
 The storm is a warning, he thought.
 
-Master Ekusa watched as large black clouds grew balefully on the horizon, pregnant with rain and violence, and with the wind lashing their backs, spurring them on, he knew that no one could outrun them. The storm would catch all in its path.
+[[Grand Master Ekusa|Master Ekusa]] watched as large black clouds grew balefully on the horizon, pregnant with rain and violence, and with the wind lashing their backs, spurring them on, he knew that no one could outrun them. The storm would catch all in its path.
 
 Master Ekusa felt the chill more than most, not only because of his age but also because his powers made him more attuned to what countless others were not. The storm is a warning, he thought again. Most definitely. Of that, the ancient master had no doubt.
 

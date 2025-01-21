@@ -7,3 +7,4 @@ source: New Dawn rulebook
 ## [[Temple of Ro-Kan]]
 ## [[The Cult of Yurei]]
 ## [[Ito Clan]]
+## [[The Shadow Wind Clan]]

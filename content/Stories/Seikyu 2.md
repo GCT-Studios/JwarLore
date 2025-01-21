@@ -1,7 +1,7 @@
 ---
 source: Risen Sun tournament pack
 ---
-As she looked out over a magnificent vista, Hagane was amazed to see the gathered might of her clan. To maintain stability in the prefectures of the Golden Empire, the ruling clan always kept an army much larger than all of their rivals combined. To see them here in their thousands, this is a memory Hagane knew would never dim.
+As she looked out over a magnificent vista, [[Takashi Hagane|Hagane]] was amazed to see the gathered might of her clan. To maintain stability in the prefectures of the Golden Empire, the ruling clan always kept an army much larger than all of their rivals combined. To see them here in their thousands, this is a memory Hagane knew would never dim.
 
 This army would rarely see the Jwar Isles however, here ten thousand leagues from home they battled the Emperor’s enemies and the others were keen to see the emperor’s newest general in action. In particular General Wusho, nominally the commander in this region, wanted to see what she and her army could do.
 
@@ -27,7 +27,7 @@ The voice came from behind Hagane, one of the men in the tent.
 
 Hagane turned to confront this one who cowered away and then presumed to give her instruction.
 
-Instead she knelt before Koshimori Yukio.
+Instead she knelt before [[Koshimori Yukio]].
 
 “Form a company of men as honour guard, The Emperor commands you to return to the Jwar Isles.”
 

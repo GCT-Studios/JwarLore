@@ -1,9 +1,9 @@
 ---
 source: New Dawn rulebook
 ---
-As Kame Sam rolled slowly and methodically towards the grove, Master Ekusa sat motionless except for the bobbing motion of his mount’s awkward gait. Eyes shut, his face a mask.
+As Kame Sam rolled slowly and methodically towards the grove, [[Grand Master Ekusa|Master Ekusa]] sat motionless except for the bobbing motion of his mount’s awkward gait. Eyes shut, his face a mask.
 
-As Riku Watched the Master he knew that although Ekusa's body sat atop his old friend and companion, his mind was elsewhere; a place Riku could only guess at. When he was younger he had had asked the Master where he would go in moments like this. The old monk had answered in his characteristically confusing way, "I go everywhere, for we are always here and nowhere.", punctuated with a satisfied little chuckle at the look of bafflement on the young boy's face, before affectionately rustling his hair with a heavy wrinkled hand and walking away.
+As [[Riku]] Watched the Master he knew that although Ekusa's body sat atop his old friend and companion, his mind was elsewhere; a place Riku could only guess at. When he was younger he had had asked the Master where he would go in moments like this. The old monk had answered in his characteristically confusing way, "I go everywhere, for we are always here and nowhere.", punctuated with a satisfied little chuckle at the look of bafflement on the young boy's face, before affectionately rustling his hair with a heavy wrinkled hand and walking away.
 
 Kame Sam's abrupt halt brought Riku back from his childhood reminiscing. Without opening his eyes the old monk announced, matter-of-fact, "we are here, but we are not alone".
 

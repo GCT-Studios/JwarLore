@@ -76,7 +76,7 @@ A swarm of armed samurai, all battle-ready took the captive from Hanso and escor
 
 “Yes you are,” Hiro pointed to a Tanto sticking from his Gunso’s thigh.  
 
-“Go and seek out the physician, Daisuke. He’s been stationed in the village at the bottom of the hill. Have him tend to your wound.”
+“Go and seek out the physician, [[Daisuke]]. He’s been stationed in the village at the bottom of the hill. Have him tend to your wound.”
 
 Hanso bowed down, dutifully acknowledging his orders. It took him a while to realise that he had been, in fact, injured. His hakama was slowly changing colours on the left leg, from blue to dark blue to wet black. There was a bloodied tanto, sticking out of his thigh like a lone branch on a massive tree trunk. The assassin must have hidden this weapon somewhere in his garb.
 

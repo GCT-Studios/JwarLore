@@ -6,7 +6,7 @@ The tiny, ember coloured fox felt them first.
 
 He’d stopped for a quick drink in the river before heading home, and, as he lapped up the cool, forest-chilled water, a presence announced itself not far from where he crouched. Animal, mineral or vegetable, he thought jokingly. He wondered what it could be.
 
-He was a clever fox; no ordinary little vulpine was he. The fox spent his days at the local temple, underfoot and in the way, causing as much havoc as he could before eating all the scraps and falling asleep on Master Enos’s finest robes.
+He was a clever fox; no ordinary little vulpine was he. The fox spent his days at the local temple, underfoot and in the way, causing as much havoc as he could before eating all the scraps and falling asleep on [[Master Enos]]’s finest robes.
 
 The fox did not waste his time in the Temple of the Trees, and he had begun to study these monks of Ro- Kan as intently as they studied him. He clearly understood Ki, his role in the world, and possessed teeth sharp enough to lessen the stoutest of grips. He had probably mastered more in his short time there than most of the apprentice monks had learned in years. But I digress…
 
