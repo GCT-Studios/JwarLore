@@ -20,7 +20,7 @@ import MobileOnly from "./MobileOnly"
 import RecentNotes from "./RecentNotes"
 import Breadcrumbs from "./Breadcrumbs"
 import Comments from "./Comments"
-import Source from "./Source"
+import FMdata from "./FMdata"
 
 export {
   ArticleTitle,
@@ -45,5 +45,5 @@ export {
   NotFound,
   Breadcrumbs,
   Comments,
-  Source,
+  FMdata,
 }

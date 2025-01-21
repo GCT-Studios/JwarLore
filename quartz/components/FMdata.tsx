@@ -3,7 +3,7 @@ import { classNames } from "../util/lang"
 
 export default (() => {
   
-	function Sourcedata({ fileData, displayClass }: QuartzComponentProps) {
+	function FMdata({ fileData, displayClass }: QuartzComponentProps) {
 	  const text = fileData.text
   
 	  if (text) {
@@ -13,8 +13,8 @@ export default (() => {
 		const FMauthor = fileData.frontmatter?.author
 		var authorStr
 
-		if (FMsource != null){ sourceStr = <p class={classNames(displayClass, "source")}><em><strong>Source: </strong>{sourceStr}</em></p> }
-		if (FMauthor != null){ authorStr = <p class={classNames(displayClass, "author")}><em><strong>Author: </strong>{authorStr}</em></p> }
+		if (FMsource != null){ sourceStr = <p class={classNames(displayClass, "source")}><em><strong>Source: </strong>{FMsource}</em></p> }
+		if (FMauthor != null){ authorStr = <p class={classNames(displayClass, "author")}><em><strong>Author: </strong>{FMauthor}</em></p> }
 
 		return <div class="frontmatter">{sourceStr}{authorStr}</div>
 	  } else {
@@ -22,6 +22,6 @@ export default (() => {
 	  }
 	}
 
-	return Sourcedata
+	return FMdata
   }) satisfies QuartzComponentConstructor
   
