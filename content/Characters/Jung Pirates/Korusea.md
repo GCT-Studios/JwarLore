@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The Korusea make up the bulk of the veteran seaman of the Jung, skilled sailors and warriors, armed with wicked curved blades which gut a man as easily as a fish. Their secondary weapon is a web woven from light but very strong twine, used to subdue an enemy up close or at range.

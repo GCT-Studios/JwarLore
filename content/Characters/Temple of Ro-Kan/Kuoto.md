@@ -1,0 +1,8 @@
+---
+source: Website
+---
+When the Kitsune scouts find a soul they feel has strayed from its dharma, a judge is called. Kuoto can see the fate the soul should have as well as its current path. She will confront the soul, glamoured to appear larger and imposing, and offer it the final choices. For each option, the soul will either begin to right its path or be corrected.
+Though she may weep for the loss she inflicts, if the soul will not change, Kyoto will give her final verdict. Follow the path or death.
+These choices are reflected in her Ki Feats. First, she will ask the soul to meditate on its actions (Use a Focus Action), and if they do not, she forces them to act correctly (The Control Marker).
+Next, she decrees the path the soul should take by choosing its following action. Finally, she can offer one last chance, act correctly (Control Marker) or be sentenced to death. While she has the usual Kitsune trickery in melee (Dodge and Feint), she isn't a combat model but should be able to defend herself well enough.
+Kyoto doesn't use her fox form all the time; she would say that she uses it wisely and judiciously and not to excess. You will notice in the game that she begins in Fox Form, but unlike Kota, a young and vivacious scout kitsune, she cannot switch back and forth mid-battle.

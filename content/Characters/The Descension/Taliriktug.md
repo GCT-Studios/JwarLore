@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Taliriktug is as strong and rugged as the mountains he calls home. With his ancestral axe, crafted to last generations, none can resist his wide and arcing blows, felling opponents unable to the block his furious onslaught.  

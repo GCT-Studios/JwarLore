@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The Jade Rose’s reach stretches far beyond the city of Jima. It is difficult to find an individual in a position of power, man or women who hasn’t tasted or been tempted by the sweet smell and charms of a beautiful rose. No one knows exactly the training techniques that the Jade Rose implements and many suggest that there charisma and manipulative powers are supernatural and the result of some powerful enchantment. Of course no Rose would ever disclose this information such is their devotion to the Gumi. Saki is as master at the art of suggestion, without uttering a word she can draw the attention of any unlucky enough to be selected for her wiles, stumbling blindly after her in the heat of battle.

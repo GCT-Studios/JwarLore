@@ -1,0 +1,4 @@
+---
+source: Website
+---
+When the tide of the battle is changing and the will of the Prefecture’s soldiers is waning, Fujitaka is there waving his banner and rallying the troops. His bravery in the face of impossible odds is well known and his fellow Ashigaru find their own inner strength in his presence. Fujitaka also shares his own strength to enable others to continue the good fight.

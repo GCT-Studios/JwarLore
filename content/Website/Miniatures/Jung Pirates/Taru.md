@@ -1,1 +1,0 @@
-A brave and able seaman, he uses his net as a barrier to defend against missiles directed at him and also to divert their force against the attacker. Nimble and quick footed Taru is a great soldier for the Jung.

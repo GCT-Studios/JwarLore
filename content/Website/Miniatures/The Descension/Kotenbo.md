@@ -1,1 +1,0 @@
-The Haiatake are the third of the warrior caste of the Tengu. Strong, loyal and fearsome fighters, dedicated to the pursuit of mastery of martial disciplines. Their traditional weapon the oversized Katana which they wield either single or double handed with equal skill.

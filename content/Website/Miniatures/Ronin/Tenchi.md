@@ -1,1 +1,0 @@
-Tenchi, Seishin na Goei are an ancient order of highly skilled warrior women sworn to protect not only the bodies of the lords of Ryu, but also their souls. Offering their lives in service of their clan, fearless in the face of death and cold steel for those that oppose the Takashi.

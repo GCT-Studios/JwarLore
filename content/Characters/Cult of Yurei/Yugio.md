@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Yugio, once a pious and faithful peasant serving the burial grounds of his hamlet. However this once loyal and honest man, like so many, has been corrupted. The long days spent on his own listening to ancestors began to turn his beliefs, vile and impure. Little did Yugio realise that voices he believed were his ancestors were those of Yurei. Now a broken and maddened shadow of his former self, another puppet, bent to the will of a dark and ruthless master, his former teachings twisted to benefit the Shugenja of the Cult. The Shoymo taught to him to protect the spirits and souls of his ancestors now turned against their peoples. 

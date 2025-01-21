@@ -1,0 +1,4 @@
+---
+source: Website
+---
+A veteran of the Dragon wars, tales of his courage at the battle of Hendai are still told today in the streets of Tsumaga. He had led the life of a fisherman after the first war until the call from Ryu came, summoning all goshi back to service in this time of war. From an early age Isamu exuded an air of authority and a calm head in the heat of the moment it came as no surprise that he was raised to the rank of Gunso quickly during his first term of service to the Takashi clan, a position he has quickly settled into now. His experience and presence imbuing his soldiers with a confidence and courage to fight on and turn the tide of battle for the Dragon clan.

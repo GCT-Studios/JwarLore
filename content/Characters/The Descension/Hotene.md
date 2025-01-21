@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The Tribe of the Fallen Gods worship the Tengu from deep within the earth; their only contact with the gods is when one falls to the ground at the end of their long life. At this juncture, they show their affection and reverence differently from all the other tribes that dwell in or around the snow-capped mountains. The tribe will waste nothing, and in using every part of the Tengu, their god continues to help and protect the tribe. Hotene, in particular, carries a talisman from a fallen Tengu, protecting against all dangers.

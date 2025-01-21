@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Ito Itsunagi is the eldest of the heirs to the Ito clan. His training has been second to none and his skill at arms is quite astounding. A brutal and coldblooded killer, his only downfall is his arrogance, mocking opponents with his lack of armour.

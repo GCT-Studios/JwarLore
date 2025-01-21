@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Deep in the belly of the world in the dark places the Bakemono tribes call their own the bats grow large. Whether it is through the consumption of the rare and toxic fungus that the bats in the warrens grow to such size or because the Sho Bak Shugenja are not opposed to the occasional Bakemono snack to help with the diet no one could comment. Those brave explorers who have ventured deep enough into caverns where the bats dwell don’t live long after hearing a strange clicking. As in battle the bats sweep in from the skies, driving their targets to the ground, their suffering only ended then the bat has had its fill of their blood or when the noxious toxics the bats carry in the mouths have overwhelmed their bodies.

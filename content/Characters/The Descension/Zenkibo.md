@@ -1,0 +1,4 @@
+---
+source: Website
+---
+A legend amongst the Zephyr guard, Zenkibo is a nimble and ruthless fighter. Swift on the wing and skilled in the Suzume yari, he makes a strong addition to any Tengu warband.

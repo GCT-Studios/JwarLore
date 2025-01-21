@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Shinyuki is fearsome in word, act, visage and deed. A combat-centric member of the infamous Bleeding Moon, he excells in death, stealth and being prepared to deal with any situation. Being able to react fluidly counts massively when on missions, which makes this Shadows Crow the terrifying foe he is. His weapon of choice is the Kama: a short, sickle-like weapon that can slice and punch through the stoutest of armour. He loves it so much that he fights with one in each hand, and when in motion, they are a wall of slicing steel. He hides his identity behind a fearsome mask that stupefies his enemies for a second or two when they see it. They often realise - correctly - that this will be the last thing they see on this earth, and the hesitation is all he needs to strike first.

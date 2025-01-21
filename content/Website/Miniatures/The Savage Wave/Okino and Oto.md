@@ -1,1 +1,0 @@
-The mischievous, lazy pair have tied their war drum to the back of a slave. They ride into battle charged with getting the best out of their companions, the pounding rhythm of the drum drives the Bakemono on to achieve their full potential.

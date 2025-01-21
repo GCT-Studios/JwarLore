@@ -1,1 +1,0 @@
-A warrior sister of the Fujiwaro, Ran has betrayed her sisters to join with Mari Jung for reasons unknown. A blur on the battlefield, her sai finding cracks in armour and hide alike to cripple foes with a whirlwind of keenly placed attacks. 

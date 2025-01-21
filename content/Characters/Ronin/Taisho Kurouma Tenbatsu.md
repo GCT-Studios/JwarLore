@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Kurouma Tenbatsu is a broken and twisted man. The Kurouma line was cut over a century ago, only a small and insignificant clan during their short existence and Tenbatsu is all that remains of the clan formerly based in Eastern Jwar. The last son of the samurai clan is hardly even human although what he is, is up for debate. Some say that the colossus of a man is a twisted soul, torn between this world and Jikoku for his sins, some that the man is dead and that the cursed swords he is forever bound to carry constantly fight for control of him, others that he has sold his soul for eternal life and is simply a man too far down his dark path to ever come back. What is known is that he is welcomed and feared equally by his allies for he is inhumanely strong and savage, this damned warrior striking fear into the hearts of all those who dare to stand against his murderous rampage.

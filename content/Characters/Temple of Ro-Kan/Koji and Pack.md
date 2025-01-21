@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Koji has been waiting as patiently as he could for his time to protect all he holds dear. Since he turned away a lone ninja Koji has finally been allowed that chance by the temple elders. Individually Koji and his macaques would fall quickly but united they stand. The shared love and loss of Kita has cemented the bond between boy and monkeys to something akin to brotherhood, each willing to fall in place of the next.

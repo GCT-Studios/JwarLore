@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Akashi retired as a legend from the fighting pits having garnered renown even outside the empire. His return to the Jwar Isles has had many question the motives behind his return. He has stirred feelings in the Buto that many would prefer buried and it seems that he has become increasingly political as he has aged. Although old Yokozuna is still a threat and as in in his heyday he still does not acknowledge the idea of being beaten.

@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The strength of sisterhood found in the Shisai of Orochi is not like the standard bonds found in faith. The Shisai of Orochi are spiritually and mentally stronger in the presence of their sisters. Few in the Jwar Isles can challenge the will of two let alone three of these fervent believers in Orochi’s power. Satsuki like the other Shisai lets Orochi’s will flow through her, becoming a channel with which Orochi can strike down its enemies. Those who stand against the Ito shisai fall crumpled to ground, wracked in agony as Orochi’s poison destroys their bodies from the inside, Satsuki’s presence accelerating the process to terrifying speeds, leaving only the faithful to walk in Orochi’s lands.

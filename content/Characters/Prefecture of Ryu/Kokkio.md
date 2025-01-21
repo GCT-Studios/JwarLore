@@ -1,0 +1,4 @@
+---
+source: Website
+---
+While only a new ashigaru and just out of training, Kokkio significantly influences the Takashi's tactics. He has learned to use the more recent version of the Dragon Clan's arquebus weapons. While undergoing training, Kokkio sought to use the movement - and distance- of the banners that lined the training area to significant effect. With each twist and turn of the flag in the wind, he could adjust his shots accordingly, becoming far more accurate and decidedly deadlier. He mentioned his technique to his Gunso, who has now incorporated a series of banners on the battlefield to help the gunline get the most out of their weapons and training.

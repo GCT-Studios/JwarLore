@@ -1,1 +1,0 @@
-Like all good wolves, the Ryoshi sworn to the Tanaka hunt in packs. The strict hierarchy of the clan means they do not fight with their samurai lords but in a group of their own.  Even with their long bows, they like to act together to fire simultaneously at the same target.

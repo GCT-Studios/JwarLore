@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Eight foot of lean muscle, a cunning, ruthless hunter. The Kaihei Alpha are the large and most ferocious of the Kaihei; an already deadly beast. Like all packs it only functions with strong leadership and Alphas have this in spades, another creature born out of the unforgiving wilderness the Oni call home where only the strongest survive. In battle, under the Kaihei Alpha’s glare the pack moves as one, quickly and decidedly devouring their helpless prey alive, snapping and ripping in a bloody fury of tooth and claw. Of the many fighting beasts of the Oni the Kaihei rightly hold a place of fear in the minds of men. 

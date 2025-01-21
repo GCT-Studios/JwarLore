@@ -1,0 +1,8 @@
+---
+source: Website
+---
+It is no secret that Juko did not like the role given to him; never wanting to harm anyone or pass judgement, he did his best to stay out of the Kitsune's machinations. Music is his life, and he would rather while away the days than be dispensing justice on wayward beings.
+However, Juko was politely advised that by doing this, he was failing to follow his own path and that death would be an inevitability if he did not change his course.
+He took it upon himself to find a way to balance his beliefs with his given destiny. He found this when he was able to use his music to correct a wayward kami, corrupted by an evil shugenja. 
+It is rare for kami to fall from their correct dharma. Their very nature is to exemplify their anima. Kami of wind move, fly and leap. Kami of the earth endure, persist and grow. Even some kami representing dark concepts, such as The Wraith, are true to their natures, however abhorrent.
+Usually, an outside force corrupts a kami, so Juko takes up the most challenging task of not just removing them but purifying and correcting the corrupted kami. Juko can reach into a kami and touch its very anima with his music, and if he is strong enough, he can cleanse them of their taint and set them back to their correct course.

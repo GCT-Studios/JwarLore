@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The Heimin class consists mainly of farmers, artisans and merchants.  But these peasants know the true lords of the prefecture and follow them still when they go to war.  Being below the notice of most Samurai and living far from the cities of Jwar, most villages are unaware that the Shiho no longer control the prefecture, while others are still loyal to their old Shiho masters regardless. Those loyal to the Eagle remember the days before the Tsunami, before the masked dead, before the Savage Wave, before the Takashi went to war to usurp the Shiho. But they know, deep within their hearts, and in their prayers, that the Eagle will rise once more victorious, covering Jwar with its wings.

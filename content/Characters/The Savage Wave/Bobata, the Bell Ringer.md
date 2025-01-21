@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Bobata the bell ringer's awesome weapon is at the disposal of the Savage Wave. As Bobata swings the mighty bell around his head he is equally inspiring to allies as he is fear inducing to his foes.

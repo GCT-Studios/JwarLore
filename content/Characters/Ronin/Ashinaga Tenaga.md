@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Ashinaga Tenagis are usually sited in streams or rivers and it seems that they have a deep connection with the water, able to commune with the water around them to turn the land into a sea of mud. These yokai, long a legend amongst the peasants of the Ro-Kan, exact motivations for joining the fray are unknown but they are a welcome boost to the morale of the villagers they appear to protect, their presence imbuing a sense of belief in the common people enabling them to fight harder in defence of the balance of Jwar. To look at them individually one would think that they lack any combat skill, but once combined, one astride the other, the pair are a tricky opponent. With a snaring net in one hand which they use to either entangle an enemy up close or from afar, in the other a diamond sharp fishing spear handled with great precision.

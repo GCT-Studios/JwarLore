@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Takashi Akio is a legendary sensei of the finest sword Gakko in Ryu. The majority of the Takashi line has learning under his excellent tutelage. Now in the twilight years of his life and with the need for all able body warriors to answer Hida’s call, Akio has put down his Bokken and stepped forward to offer his life in service to his lord. Still a fearsome warrior but the real advantage he offers any fighting force is his expert knowledge of combat. His ability to instruct the samurai around him with either a point to a chink in a seemingly impenetrable suit of armour to a swift reminder of the techniques he taught them on the dust training ring of the Gakko, he is another strong commander to join the Prefecture of Ryu’s ranks.

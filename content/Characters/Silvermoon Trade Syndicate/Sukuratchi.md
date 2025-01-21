@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Sukuratchi, a grizzled and season veteran of Jima’s famed fighting pits, an accolade that many in his trade cannot claim. His years training and taming animals means that Sukuratchi has a vast knowledge of skills and techniques that enable him to bring even the most fearsome of wild animals under his command or push a broken animal to amazing lengths of stamina. Always accompanied by Akuma or “Devil”, the animals named so for their constant snapping and pestering after food. Another animal Sukuratchi is an expert at handling is the Kirian Fighting bird, his current champion Okkete San is one of the most savage and aggressive birds in recent history of the fighting arenas and has won many Silvermoons for those who pass a wager on him.  

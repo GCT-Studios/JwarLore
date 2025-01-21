@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Moyasu was cursed to burn forever without being consumed. She was offered respite under the ocean by the sea Kami but any part of her that extends above the waves bursts into flames! Like others with the blessing of the sea Kami, she has taken on some aspects of sea creatures.

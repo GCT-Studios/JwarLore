@@ -1,1 +1,0 @@
-Tengu society is floundering since their King, Sojobo, descended from high with his followers to participate in the world below their icy peaks. With an empty throne at the heart of their lands, sedition and rebellion smoulders. She plays a mysterious role in these matters which is unclear as of yet, perhaps it has something to do with long-lost prophecies revealed once more.

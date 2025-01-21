@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The ashigaru in the Okyo garrisons are massing in preparation for the battles to come. Whether armed with the Okyo naginata, a slightly smaller version of the standard weapon due to the confines of the terrain, or the Ito short bow they are ready to combat the enemies of the snake. The versatile archers make excellent skirmishers, lightly passing through the densest undergrowth before raining death upon the enemy with cold Izu steel. 

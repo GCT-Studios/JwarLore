@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The oyabun of the Silvermoon do not consider age a restriction to the entrance to their service. Many fill their ranks with youngsters eager to establish themselves within the Shatei ranks and prove themselves worthy of their oyabun’s favour. All within the Silvermoon play to their own strengths, and in doing so strengthen their gumi. Sukoshi Kani and Nomi are no different in this respect. Sukoshi, armed with her bag of makibishi, ready to scatter them wide at a moment’s notice to cover a retreat or block a path. Nomi serves as the keen eyes and ears, ready to alert his brethren to approaching or unseen dangers. Their small statures another hindrance turned help, enabling them to sneak into an enemy’s flanks and wreak havoc. 

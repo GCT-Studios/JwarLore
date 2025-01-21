@@ -1,0 +1,4 @@
+---
+source: Website
+---
+If Master Koju is in danger all of creation will bend to ensure her safety, and even the most depraved Kami representing the worst aspects of creation will not harm her.  This often manifests as wild animals appearing alongside her to attack those who threaten her and her enemies seem to slow down in her presence allowing her allies the opportunity to take out threats before they have a chance to harm her.

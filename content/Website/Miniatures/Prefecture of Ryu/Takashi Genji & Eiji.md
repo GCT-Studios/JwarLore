@@ -1,1 +1,0 @@
-Born to fight, there was never a doubt that these twins would take any path other than that of the samurai. Genji strong and quiet, Eiji quick to anger but equally quick to laugh, on the battlefield when fighting back to back they fight with an unmatched unity.

@@ -1,1 +1,0 @@
-How the transformation will take hold no one can be sure, Akimoto is taking on the very image of Orochi. In the heat of the battle his allies claim he transforms further, this claim is supported by the opponents that flee in terror in the face of his onslaught.

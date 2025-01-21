@@ -1,0 +1,4 @@
+---
+source: Website
+---
+These abominations of undead are the latest creation of the warped and twisted minds of the Cult Shugenja. Lumbering across the battlefield with single minded purpose, to bring death and suffering to the lives of the living. Those brave enough to stand against the cruel mockeries of their former friends and love ones are thanked with a foul toxic substance spraying from their wounds, eating away flesh and muscle. Should their foes manage to bring one of these puppets down reports talk of them swelling like rotten fruit and exploding all over an opponent as one last insult. 

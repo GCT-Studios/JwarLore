@@ -1,0 +1,4 @@
+---
+source: Website
+---
+All captains must have a trusted Juhin. There is none more trusted, to be found in any port in the Gulf of the Three Brothers, than Yuji. A seasoned sailor and servant of the Jung, for many cycles he has barked the orders of his captains, the kaizoku darting to complete his commands. Never far is his oldest friend Same, no one is able to catch Yuji napping with the old monkey around.

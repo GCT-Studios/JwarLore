@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Like all of the warriors of the tribes, Maniitok is brave and honest. A keen farmer, pious and simple. The people of the hills are a simple uncompromising breed, as hard as the mountain and unyielding in the defence of their kin. A life in the hills is hard though and daily struggle against the land has carved Maniitok into the warrior that protects his people so fiercely, strong as a mountain ox, cutting down his enemies with wide arcing swings of his axe.

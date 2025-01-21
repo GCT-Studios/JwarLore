@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The eagles from across the Jwar Isles come to the call of the Tengu. Great, majestic, aerial hunters, undisputed kings of the sky across most of the empire. Eagles are huge birds of prey, some able to lift off a whole goat using their massive wings. Recently, the eagles have also come to the call of another, a human blessed to carry the Mon of the Eagle clan.

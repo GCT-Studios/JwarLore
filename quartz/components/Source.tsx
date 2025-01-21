@@ -8,12 +8,15 @@ export default (() => {
   
 	  if (text) {
   
-		const source = fileData.frontmatter?.source
+		const FMsource = fileData.frontmatter?.source
 		var sourceStr
+		const FMauthor = fileData.frontmatter?.author
+		var authorStr
 
-		if (source != null){ sourceStr = source }
+		if (FMsource != null){ sourceStr = <p class={classNames(displayClass, "source")}><em><strong>Source: </strong>{sourceStr}</em></p> }
+		if (FMauthor != null){ authorStr = <p class={classNames(displayClass, "author")}><em><strong>Author: </strong>{authorStr}</em></p> }
 
-		return <p class={classNames(displayClass, "source")}><em><strong>Source: </strong>{sourceStr}</em></p>
+		return <div class="frontmatter">{sourceStr}{authorStr}</div>
 	  } else {
 		return null
 	  }

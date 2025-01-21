@@ -1,1 +1,0 @@
-Kazuhiko has taken the first steps to joining the followers of Orochi and he will do whatever it takes to prove his devotion. He gives his all to support those touched by Orochi and ensure their safety.

@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Another daughter of the Takashi clan has taken up the fight. Hagane wields her twin Katanas to devastating effect. More like her uncle Hida than his own son, Hiro. Her ruthless streak has endeared her to those that tread the halls of power at the very top of the Prefecture. Hagane can be relied upon to get the job done.

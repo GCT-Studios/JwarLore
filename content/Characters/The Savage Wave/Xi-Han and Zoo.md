@@ -1,0 +1,4 @@
+---
+source: Website
+---
+It is hard to tell if Xi-Han had lost his mind before or after he consumed every unusual mushroom he could find. The exact purpose of this pursuit remains a mystery. What is clear is that bizarrely he has managed to develop the ability to focus and force his body to replicate the effects of these rare and potent fungi. Sending his body into spasm and unleashing the deranged and violent “Zoo” for a short while to wreak havoc on his enemies. He also still maintains a constant supply of mushrooms on his person that he can throw in battle to Blind, Frighten or enrage anyone unlucky enough to inhale the spores.   

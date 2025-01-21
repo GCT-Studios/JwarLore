@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Kota has broken from the ranks of her people by allying herself with the Temple's cause. Her mobility on the battlefield greatly improves the Temple's ability to meet their objectives.

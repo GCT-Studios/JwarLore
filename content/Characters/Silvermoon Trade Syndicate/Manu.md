@@ -1,0 +1,4 @@
+---
+source: Website
+---
+This giant Buto is the personal bodyguard of Harukichi and was selected for obvious reasons. His prowess in the Jumo arenas quickly attracted attention, it was clear to most he was destined for a top position within the Syndicate, and he has not disappointed. Constantly vigilant to any threat, and unshakeable in his devotion to the defence of his Oyabun, Manu has continuously put himself in harm’s way, catching most would be assassins off guard with his prowess in melee, deftly blocking blows until his master is safe, then and only then the time comes to crush bones with fists the size of mallets.

@@ -1,0 +1,4 @@
+---
+source: Website
+---
+In times of war the Prefecture of Ryu is able to call upon those loyal to their Takashi Lords, swelling the ranks of the serving ashigaru with Goshi. Madoka wields his long axe in the name of Ryu, hacking down foe with sweeping blows; his courage in battle is soon restored in the presence of a trusted commander.

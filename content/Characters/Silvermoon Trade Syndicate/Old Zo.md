@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Exactly how old Zo is remains unknown as it seems he has been in service to the Gumis of the Silvermoon for decades. If the years have taken their toll on his body they have certainly not affected his cunning mind and his famed intellect. Nothing gets past the owl like eyes surveying every situation from behind his rimmed glasses, weighing up the myriad options available. There is nothing that seems to faze this esteemed Saiko-Komon as he quietly manages the ebb and flow of battle, emitting an aura of influence that seems to sap the spark and energy from enemies whilst reinvigorating friends to turn the tide in favour of the Silvermoon. Many Oyabun have felt all the more confident that the odds favour them with Zo by their side.
