@@ -11,15 +11,15 @@
 
 .frontmatter {
 	font-style: italic;
+	width: fit-content;
 }
 
 .frontmatter::after {
 	content: "";
     display: block;
-    width: 300px;
+	width: calc(100% + 2rem);
     height: 2px;
     background: var(--secondary);
-    max-width: 80%;
 }
 
 h1 {
