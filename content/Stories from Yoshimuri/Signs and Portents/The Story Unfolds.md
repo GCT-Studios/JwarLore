@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 While the Minimoto sought to expand their lumber industry by demolishing the old temple
 and building a big sawmill to provide Jyoto and other Minimoto Provinces with enough

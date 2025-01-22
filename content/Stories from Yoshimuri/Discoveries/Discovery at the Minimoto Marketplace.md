@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 "Shoo! Go away! Don't ya defile our beloved shrine!" Roka said to a young woman, who
 quickly left the market area in shame.

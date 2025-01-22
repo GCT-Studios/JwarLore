@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 The Sun was already low set only a few
 moments and it would disappear behind

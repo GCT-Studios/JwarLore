@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 “There, etched into the dirt, were strange tracks unlike any we had ever seen!
 At first, we tried to rationalize it, thinking it could have been some sort of animal. But as we followed

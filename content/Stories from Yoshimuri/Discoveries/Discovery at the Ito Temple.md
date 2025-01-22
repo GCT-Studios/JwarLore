@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 Akiko wiped away the sweat on her forehead. She had been sweeping floors of the rebuilt
 temple the whole day. Annoyed by her chore, she overlooked a warped floorboard and

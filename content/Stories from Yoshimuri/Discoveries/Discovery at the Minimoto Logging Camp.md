@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 „Do we really have to go further?” Haruichi’s whining voice came from behind.
 Kazuto rolled his eyes.

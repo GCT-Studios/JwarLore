@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 Dice rattled in a wooden cup. “Han!” “Chō!” “Chō” “Han!” the gamblers announced their bets loudly in
 the smoke filled gaming hall of the Coin & the Fan.

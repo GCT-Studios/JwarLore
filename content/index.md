@@ -9,4 +9,4 @@ Content which is currently only available in print will not be included.
 [[New Dawn|New Dawn rulebook]]  
 [[Characters/index|Characters]]  
 [[Tales from the Jwar Isles/index|Tales from the Jwar Isles]]  
-[[Stories of Yoshimori/index|Stories of Yoshimori]]  
+[[Stories from Yoshimuri/index|Stories from Yoshimuri]]  

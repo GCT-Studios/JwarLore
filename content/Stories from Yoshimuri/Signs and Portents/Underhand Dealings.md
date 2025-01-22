@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 Masaema Daisuke sat at a wooden
 table in a corner of the Fan and Coin.

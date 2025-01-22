@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 Ito Kinu took a deep breath. The ritual
 strained her more than she had

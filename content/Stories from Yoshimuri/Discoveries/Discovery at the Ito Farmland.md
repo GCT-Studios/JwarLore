@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 Kneeling beside the rice field, Chō shook her head in disbelief. She turned to Himari
 who stood next to her.

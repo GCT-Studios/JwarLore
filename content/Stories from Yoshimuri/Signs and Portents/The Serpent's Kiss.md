@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 Fubatsu had never been into the
 residence of the Ito clan before. That he

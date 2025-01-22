@@ -1,6 +1,6 @@
 ---
-source: Stories of Yoshimori
-title: Stories of Yoshimori
+source: Stories from Yoshimuri
+title: Stories from Yoshimuri
 ---
 ## A City in Conflict
 

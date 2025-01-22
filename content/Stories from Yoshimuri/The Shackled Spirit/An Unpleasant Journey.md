@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 “I saw it with my own eyes!” the woodchopper said with a trembling voice.  
 

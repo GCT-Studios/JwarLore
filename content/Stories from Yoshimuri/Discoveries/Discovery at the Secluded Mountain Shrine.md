@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 Rokuhata's meditations were interrupted by thoughts of an almost floating shrine, so thin
 were the stones that elevated it.. It was a place he felt familiar with. Was it an old memory

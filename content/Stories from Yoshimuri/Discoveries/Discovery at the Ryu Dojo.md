@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 “Do! Kote-Men!” the cries of the ashigaru blasted through the training yard. Uto sensei walked among
 them, exposing faults and correcting mistakes with a Jo, sometimes even with a jab to an opening in

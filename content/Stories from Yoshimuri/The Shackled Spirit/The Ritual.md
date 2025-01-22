@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 Not long after the first heavy drops of rain
 splashed down on the dried ground

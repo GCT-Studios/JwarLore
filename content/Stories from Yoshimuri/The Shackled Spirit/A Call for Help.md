@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 Not again Ikeda thought to himself, when
 he heard that familiar sound of a brawl

@@ -1,5 +1,5 @@
 ---
-source: Stories of Yoshimori
+source: Stories from Yoshimuri
 ---
 Ito Takuya was very satisfied having such a profitable holding outside of the Izu
 Islands. But it was hard to control, as supplying it from home took tiresome logistics
