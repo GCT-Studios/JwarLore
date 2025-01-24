@@ -23,18 +23,14 @@ She tried to answer but the dragon was already flying far away with the speed of
 
 “It is good that your first thought is of the Emperor, but a dragon’s command is not to be ignored.”
 
-The voice came from behind Hagane, one of the men in the tent.
-
-Hagane turned to confront this one who cowered away and then presumed to give her instruction.
-
-Instead she knelt before [[Koshimori Yukio]].
+The voice came from behind Hagane, one of the men in the tent. Hagane turned to confront this one who cowered away and then presumed to give her instruction. Instead she knelt before [[Koshimori Yukio]].
 
 “Form a company of men as honour guard, The Emperor commands you to return to the Jwar Isles.”
 
-Few men could make such a proclamation but Teishin Koshimori spoke with the Emperor’s authority.
+Few men could make such a proclamation, but Teishin Koshimori spoke with the Emperor’s authority.
 
 “A company of men? I do not need that protection!”
 
 The outburst came before she could stifle it. Luckily the Teishin did not take offense.
 
-“But I never travel with less than a full company and I will be going with you. Last time I was in the Jwar Isles, I do not think I saw this shrine. Time for another look I think.”
+“But I never travel with less than a full company and I will be going with you. Last time I was in the Jwar Isles, I do not think I saw this shrine. Time for another look, I think.”
