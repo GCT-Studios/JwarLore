@@ -1,0 +1,5 @@
+The short version of this story, told quietly in the capital, is the three Samurai were always close. They lived, travelled and fought together all their lives. When the eldest was convinced that a member of the Imperial House was a threat and had to be removed, they made oaths and became Blood Brothers, loyal to their last breath. They conceived and executed a daring plan and assassinated him.
+
+No evidence of any wrong doing was ever found, indeed he was seen by most as a virtuous and wise adviser to the court. His three daughters, blessed as Imperial Princesses with wealth, opportunity and training swore vengeance and are hunting the brothers. They have tracked them to the Jwar Isles and hope to have their final showdown there.
+
+Some say the brothers were tricked into killing an innocent but if they have any remorse they do not show it and besides, who could have deceived three distinguished Samurai? The Servant [[Baichi]] has remained loyal and earned the same Death Sentence the brothers have.
