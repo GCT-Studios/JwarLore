@@ -1,5 +1,6 @@
 ---
 source: New Dawn rulebook
+title: Ito clan
 ---
 The Ito clan’s mon was that of the snake, long before its occupation of Izu and its members took up the worship of Orochi. The nature of its members however, has always inherently reflected their mon and has forever been questioned by that of the other major clans. The Ito also have a look that reminds some of the snake; thin almost gaunt physiques and darting eyes always seeming to weigh the situation, always looking for an advantage. The Ito have never been accused of loyalty and thus they have never risen as high as their ambitions. They were both shocked and bitterly disappointed when the Shiho clan bestowed stewardship of Izu upon them; the island’s capital Okyo, whilst defendable, is the home of countless immigrants and paupers.  
 

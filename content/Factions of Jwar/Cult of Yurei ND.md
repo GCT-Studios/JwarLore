@@ -1,5 +1,6 @@
 ---
 source: New Dawn rulebook
+title: Cult of Yurei
 ---
 The Cult of Yurei is by its very nature and structure a secretive organisation. Distinct cells of the Cult operate independently. The members of some of these cells have received such levels of indoctrination that they believe they are pursuing their own goals, and in truth they often are. Those that find themselves attracted to the Cult are already on a path that leads them in dark harmony with the powers of Yurei and their goals have similar resonance. What they lack however is the understanding of how their actions combine to further the ultimate goal. Some within the Cult may still even have enough of a spark of humanity left to be horrified to learn of their true cause; a world in which hope is only tolerated because it allows for true despair, where life is only present to feel pain and misery. Despair, pain and misery, these are the feelings and emotions that feed Yurei and make it stronger.  
 

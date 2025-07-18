@@ -1,5 +1,6 @@
 ---
 source: New Dawn rulebook
+title: Savage Wave
 ---
 The Savage Wave comprises mainly of two very different species, the demon like Oni and the smaller gremlins called Bakemono.  
 The Bakemono are subservient in every way to their larger and stronger leaders the Oni. There is however much more to the Bakemono than simply to serve.  

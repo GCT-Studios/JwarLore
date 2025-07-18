@@ -1,5 +1,6 @@
 ---
 source: New Dawn rulebook
+title: Temple of Ro-Kan
 ---
 Since the start of time the Temple of Ro-Kan has stood in defence of Jwar and its people. Through
 natural disasters and civil wars the Temple remains impartial and ever present in the lands of the Jwar Isles, only mobilising when there is a threat to universal balance they cannot ignore. In times of peace the Temple of Ro-Kan has always been a source of comfort and reassurance for the common people. In times when the world is in a state of imbalance they serve as champions
