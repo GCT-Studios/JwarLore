@@ -1,5 +1,6 @@
 ---
 source: Website
+author: Gordon Cunningham
 ---
 Khendish is not a clever man and has been exploited and abused through most of his life. He found a measure of peace in a small village, where an old man took him in, and while he used his
 strength to help the village build, gather crops, chop wood and the like, they all helped feed the huge brute and look after him. [[Hiroto, the Drunken Master|Hiroto]], a mercenary at the time, was hired to clear out the village by a local Lord, claiming the villagers settled without his permission and he is to mine under the village for riches. He came to the village with some of the lord’s men and the thugs immediately attacked! Even at his lowest point, Hiroto was not about to watch innocents be slaughtered but there were too many. By the time he was able to stop them, only Khendish was left alive.  
