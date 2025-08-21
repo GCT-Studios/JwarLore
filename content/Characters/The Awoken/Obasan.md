@@ -1,0 +1,3 @@
+The oldest of Mura’s children, little remains of her humanity.  As her human features vanished over time as did all thoughts of morality, kindness and empathy.  
+She still dotes on her “Family” and treats all the others as her nephews and nieces.  
+She offers enemies a chance to join the Kimura and specialises in convincing those about to die that having more life to serve the family is still more life. See how kind she is?

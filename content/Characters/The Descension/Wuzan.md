@@ -1,0 +1,1 @@
+Wuzan was first noticed by the two Shamen of the tribe for his fighting prowess. He could wrestle a cave bear, catch eyeless barracuda bare-handed and managed to defeat any other tribesmen who challenged him. They advised him to look beyond this and he has since become a great leader of men, an example to the tribe, needed even more now the sun shines on them once more.
