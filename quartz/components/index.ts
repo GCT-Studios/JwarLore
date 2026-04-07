@@ -22,6 +22,8 @@ import RecentNotes from "./RecentNotes"
 import Breadcrumbs from "./Breadcrumbs"
 import Comments from "./Comments"
 import FMdata from "./FMdata"
+import Flex from "./Flex"
+import ConditionalRender from "./ConditionalRender"
 
 export {
   ArticleTitle,
@@ -48,4 +50,6 @@ export {
   Breadcrumbs,
   Comments,
   FMdata,
+  Flex,
+  ConditionalRender,
 }
