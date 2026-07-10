@@ -141,7 +141,7 @@ plugins:
   - source: github:quartz-community/favicon
     enabled: true
   - source: github:quartz-community/og-image
-    enabled: true
+    enabled: false
     options:
       colorScheme: darkMode
       width: 1200
@@ -254,6 +254,8 @@ plugins:
         - description
         - tags
         - aliases
+        - source
+        - author
       excludedProperties: []
       hidePropertiesView: false
       delimiters: ---
