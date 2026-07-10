@@ -1,6 +1,6 @@
 # yaml-language-server: $schema=./quartz/plugins/quartz-plugins.schema.json
 configuration:
-  pageTitle: Quartz 5
+  pageTitle: JwarLore
   pageTitleSuffix: ""
   enableSPA: true
   enablePopovers: true
@@ -271,7 +271,7 @@ plugins:
       subdir: plugin
     enabled: true
     options:
-      theme: hackthebox
+      theme: praxis
 layout:
   groups:
     toolbar:
