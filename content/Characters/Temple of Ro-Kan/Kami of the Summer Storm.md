@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The typhoon season around Jwar produces startling and destructive weather, with high winds destroying all in its path. Whole villages and entire fleets have been known to disappear when these tempests prowl the land and sea. The storms draw their power and fury from the ocean, eventually dying out the further they travel inland, but even this brief time of landfall is one of terror and despair. Similar to the storm this Kami embodies, its time here will be short. Animists from the Temple of Ro-Kan usually summon this Kami to teach the unsui the ways of air, but it can also be used for its destructive nature against attacking enemies. It can scatter enemy warbands to the four winds leaving a well-orchestrated attack or ambush out of position and in complete disarray.

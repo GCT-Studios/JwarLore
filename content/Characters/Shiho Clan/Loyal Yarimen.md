@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The Shiho’s Ashigaru were once the pride of the Jwar Isles and made up a small but significant part of the Imperial armies that the Emperor relished taking into battle. But that was then, and this is now, and right now, the Takashi Ashigaru are considered the best-trained troops, patrolling the Jwar Isles keeping order for the Prefecture. Still, the Shiho’s fighting men have been together since the usurpation, and the loyalty they show each other is matched only by their commitment to the fallen Eagle Clan.

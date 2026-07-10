@@ -1,0 +1,5 @@
+---
+source: Risen Sun rulebook
+title: Ronin
+---
+How they came to choose this way of life depends on whom you ask. For some, it was the loss of a beloved master that set them on this lonely path; for others, it may have been their only choice. Revenge, glory, adventure, even the humble coin have all been named as the reason they roam the Isles of Jwar lending their skills and sword arm to those who need it. A few prefer to contract their skills to those whom they perceive to be of good faith, while for others, the stain of a less than reputable alliance is nothing that can’t be washed off...just like their enemies blood. No matter what side of the skirmish line you will find them on, all Ronin have one thing in common, that when the battle’s over, and they got what they came for, it’s time to wander, seeking out new lands, new masters, and new adventures.

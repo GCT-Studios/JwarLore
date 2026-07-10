@@ -1,0 +1,8 @@
+---
+source: New Dawn rulebook
+---
+When a child from a prestigious family (one with a name) comes of age, then their family and the wider area celebrate ‘The Festival of the First Step’. This starts on the child’s next name day and lasts 21 days, seven days for the study and contemplation of each path. On the Evening of the 21st day at the 7th hour, the child comes before his whole family (dependent on the child’s status within
+the family; a lower rank will have less people, the son of a daimyo will have everyone) at his castle/stronghold and presents the highest ranking member of the family in attendance with a token to show their commitment to the path. The token is different for the many different paths; wooden sword for the daimyo, brush for literature, silk blindfold for the Shisai, chisel for the Artisan and so on. The child is then assigned a mentor/sensei to instruct them for the next seven years.
+This annual event on the outskirts of Eddo is a martial tournament that brings all clans, minor and major, together; a colourful sea of banners sporting the various clans’ mons surround each event.  
+Over a week clans watch their champions compete in a wide range of challenges culminating in duels with the Katana. This is seen as an opportunity for lesser clans to gain prestige at the hands of their more illustrious neighbours and for the ruling clans to assert their dominance. The traditional martial schools, the Koryu, all watch on eagerly in the hope of seeing a former pupil prove the dominance of their style. In addition to this physical element participants also have the
+opportunity to show off their equally refined skills in other fields such as calligraphy, art and poetry amongst others.

@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The first of the Dai-Bakemono to come to the fore, bigger and stronger than all but the Rinsho Bakemono, Uk-Kang has earned renowned for being fiercely protective of his brethren and it has been noted by the Council of Shadows.

@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The Kappa are one of the most well-known of the Yokai, a selfish entitiy who will align with any for the price of a unique named gift. They're bonded to water and if the gift is suitable can be convinced to turn their powers over the element to create swamp ground to impede enemies by concentrating their will. In combat the Kappa can be strangely strong, dragging their adversaries down into the water that surrounds them and drowning their victims or stealing their souls. It is told that to curb a Kappa’s power you need to knock it down and spill the water from its head.  

@@ -1,0 +1,4 @@
+---
+source: Website
+---
+A seasoned and cunning tactician in all affairs. His razor sharp mind and unflinching resolve make Harukichi an exceptional businessman and leader. Those in his gumi display an unshakable faith in his decisions and follow his orders without question or pause. Those who follow the Five Fortunes believe that you make your own luck and this is particularly true in Harukichi’s case. It appears to his enemies that should Harukichi will it his followers are able to achieve the most unlikely feats, whilst their own trip, stumble and flail wildly. 

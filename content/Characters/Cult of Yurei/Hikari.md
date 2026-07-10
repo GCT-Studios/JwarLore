@@ -1,0 +1,6 @@
+---
+source: Website
+designer: Micha
+event: Europe Grand Masters 2018
+---
+In life, Hikari was one of four sisters who found their shugenja abilities were amplified when they worked as a coven. The fateful night the sisters were offered a bargain with Yurei, the others readily accepted the power they would gain but Hikari stood firm and refused, knowing the bargain would never be anything but a yolk around their necks and a pathway to evil. The bargain was offered only to the whole coven so her sisters murdered her and accepted the bargain as three Yuta. Hikari is still powerfully linked to them so her sisters raised her as a Kairai and forced her to obey their commands but sometimes she finds the will to fight free.

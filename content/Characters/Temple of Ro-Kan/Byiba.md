@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The enormous Fu Dogs have traditionally protected the Temple, but Byiba is from a stock bred high atop the mountains, where they protect the villagers' flocks from wolves and bears. Just like novice monks, they learn from their masters. Not only do they protect the physical, but they can guard against the spiritual, chasing ghosts and marauding kami. They work silently but emit a low-pitched bark when danger approaches, alerting those inside the temple that something is afoot. Byiba has become a close companion to a homesick unsui from the local temple, spending most days trotting behind him. While Byiba is fearsome and a danger to those he does not know, he loves to play fetch, likes being taken on long walks and can often be found around the table waiting for scraps. He is as part of the temple as those who dwell within it.

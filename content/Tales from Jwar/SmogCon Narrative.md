@@ -1,0 +1,8 @@
+---
+source: Website
+---
+Ikoju is a small province on the Jwar main isle, slightly north of Ryu it sits on the river, largely unnoticed by the world around it has escaped attention in the recent conflicts, and the villages, temples and ruins around it have stood untouched for centuries. However over the last few months something deeply wrong has been happening in the province.
+
+The province once supplied much of the rice for the city, but we have received no shipments for almost a season now.  We can no longer ignore the appeals of the nearby villagers for aid, although I believe the trouble is being caused by no more than bandits, possibly Shiho ronin come again to pester us, in fact one of our contacts in the village, a headman’s servant brought us a piece of armour that leads us to believe that at least one group of Shiho have been raiding there, I also believe we can disregard the rumours of the walking dead in the forests, and the night creatures that stalk people from the shadows as nothing more than Shiho tricks to drive our people from the lands...
+
+As such I have decided that a show of military strength is needed to drive this rabble away and restore order. A force of samurai and ashigaru will be dispatched, you shall command it with orders to commandeer the local Samurai’s mansion and training grounds as a base of operations, Takashi Nagate however has not responded to our last message, he is one of our finest Taisho, and I fear for his safety.

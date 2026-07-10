@@ -1,0 +1,30 @@
+---
+source: New Dawn rulebook
+title: Savage Wave
+---
+The Savage Wave comprises mainly of two very different species, the demon like Oni and the smaller gremlins called Bakemono.  
+The Bakemono are subservient in every way to their larger and stronger leaders the Oni. There is however much more to the Bakemono than simply to serve.  
+
+What the Bakemono lack in size they make up for in number, the high fecundity and short gestation period make for quite a horde. Whilst all the Bakemono look pretty much the same to the dismissive glance of an Oni, their population has a wide ranging spread of genetic diversity. From the same Bakemono mother can come forth many different sub-types of offspring.  
+Sho denotes those Bakemono that are significantly smaller than a standard Bakemono.  
+Dai identifies those that are of a relatively large and brutish size.  
+There are also your standard Bakemono; these are by far the most numerous.  
+Finally, there are the Rinsho, these are prized within Bakemono society for their enormous strength matched only by their stupidity, making perfect shock troops.  
+From Sho through to Rinsho, the average size increases whilst their respective intellect decreases. These are of course crude generalisations and there have always been individuals that bucked the trend of their sub-type. Raknor, surprise of the shadows, was a Rinsho that managed to rise all the way to the Council of Shadows; the first non Sho Bak to do so, although it must be noted he was also the last, his temper made the Council a lot smaller during his time as a member.  
+
+The world of man will never understand how these different sub-types have led to a well evolved society based upon tribal values, alien spiritual beliefs and tight knit family groups. Their society is undoubtedly brutal but it also ensures that only the strongest survive. It is not only physical strength that allows an individual to succeed, in fact the malicious and cunning nature of the Sho Baks means they have the second best survival rate behind the Rinsho. This diminutive sub-type is the driving force in Bakemono society, it almost single-handedly runs the Council of Shadows and therefore most tribes.  
+This Council was formed for the sole purpose of promoting the dominance of the Bakemono and the realisation of their goals. Whilst it may appear that the Bakemono share the Oni’s lust for battle and the destruction of man, they would prefer to subjugate all those before them, including the Oni they currently serve.  
+
+For long generations the Bakemono have waited. They have kept their numbers hidden, occupying the old, deep places of the Jwar Isles, long forgotten by man, their warrens are a mass of tunnels and great cave systems that crisscross the land. While man has grown and flourished in this time, he has also forgotten, his knowledge clouded and his memory distorted by time into myth and fanciful legends, the monsters that live below them fading from consciousness until nothing more is left than wives tales used to chase children to their beds. The Bakemono and the Council have not forgotten however, they have bided their time, waiting in the darkness for the day that the barriers would begin to weaken and the whole cycle repeats itself. Waiting for the first Oni to make their way across the void, to lead their campaign for what is rightfully theirs; this world and all those that lay behind it.  
+
+Whether the Oni of the Savage Wave are aware of the lofty goals of the Bakemono they so disdainfully lead is uncertain. It is unlikely to concern them either way. The Oni come to the Jwar Isles form another world, a world that like them is unforgiving and hard. On their home
+world the Oni live a nomadic, warrior lifestyle. They roam seeking out opponents worthy enough to meet them in combat. The Oni are driven by this need to improve their martial skill and test their strength and rarely seek the company of others for any other purpose.  
+
+There are however rare times on the Oni home world of Krazor when Oni gather together. One such occasion is to hunt the great wyrm called Riazzur, a beast of mythical proportions and the ultimate prey. It is unknown even to the Oni what triggers the gathering that precedes the hunt. Riazzur has never been seen during these hunts but his offspring are sometimes taken down, and devoured by those left standing.  
+
+The Oni also mix with their kin during the battle of the ‘Ring of Fire’. When two Oni have gained enough prestige and fame for their prowess in battle, enough to raise them above their peers, then a ‘Ring of Fire’ is called. Oni travel from far and wide to observe who will triumph and consume the soul of their opponent, causing a change in the victor that is hard to put into words. Over time the memories, skills, the very essence of their opponent is merged with their own. In this way the Oni maintain the history and culture they possess, and knowledge is passed down, of great deeds and debts to be repaid.  
+
+So, like the Bakemono, Oni also remember their history; when they were banished back to Krazor by the barriers put in place by the monks of the Temple of Ro-Kan. Now that the ancient barriers are failing and the Oni are returning they are adapting to their new surroundings with frightening ease. They have thrown off their nomadic ways and rapidly adopted a hierarchical structure much akin to the armies of the clans they face. The tactics and strategies of open warfare learnt on the
+battlefields of the Jwar Isles an eon ago return to them in echoes from the souls of their ancestors that course through them.  
+
+The Oni do not share the goals of the Bakemono. Their aims are simple; to prove that the Oni are the ultimate warriors and to live and die in battle. They will achieve this through war and pillaging, sweeping across the world of man leaving death and destruction in their wake. Can humanity withstand the wave about to break upon it or will it be washed away and forgotten like the morning tide?

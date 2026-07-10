@@ -1,0 +1,4 @@
+---
+source: Website
+---
+A Samurais' honor is his life. Those foolish few to betray the ancient code are cursed. Trapped and tormented by their weakness they linger on, becoming twisted mockeries of their former selves. These evil spirits are a fearsome and tireless servants of Yurei.

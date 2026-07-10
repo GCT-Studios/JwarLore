@@ -1,0 +1,6 @@
+---
+source: Website
+---
+Some say the Wanyudo are a curse of those that would break the tenants of Michi. I punishment for the Samurai who fail in their duty to their ancestors and a hex of the lands they survey. What is known is that these Wanyudo are the very vision of hell itself. Rampaging across the land, those brave enough to oppose the evil Yokai must endure the wicked flames that dance out from the flaming inferno charring flesh and melting metal, cooking the would be heroes alive. 
+
+Although thank fully rare, like all the Yokai of legend sitings are spoken of with greater frequency all over the Jwar Isles, further fuelling the unrest in the land. Some say that if the peasants of the land give up the lands lord the curse of the Wanyudo will move on. 

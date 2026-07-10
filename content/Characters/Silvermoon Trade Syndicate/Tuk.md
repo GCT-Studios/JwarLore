@@ -1,0 +1,2 @@
+Tuk isn’t the best guy to have backing you up. Especially after a swig of whatever he’s carrying on his belt today, he can be a little too brave and a little too prone to acting on instinct over following orders. This confounds the more cerebral planners and strategists among the syndicate.  
+After stealing a priceless katana, Moonfang, from a Tanaka samurai, Tuk had to learn quickly how to use it as many samurai try to recover the masterwork from this simple street thug. Tuk serves as a force to be reckoned with once blades are drawn.

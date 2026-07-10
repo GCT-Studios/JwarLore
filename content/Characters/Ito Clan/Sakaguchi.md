@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Sakaguchi’s relationship with his nest of snakes is different to the rest of the clan. The snakes are ammunition, projectiles to be expended and forgotten. Most die after being released from her serpentine bow. This callous act doesn’t seem to diminish their affection for Sakaguchi. But are they real snakes? Or some manifestation of Orochi’s wicked power? Only Sakaguchi has the answers to this.

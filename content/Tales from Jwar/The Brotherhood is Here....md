@@ -1,0 +1,7 @@
+---
+source: Website
+---
+Hiroto’s companions through his years in exile are an eclectic bunch. [[Shiho Hiroto]] was travelling the lands of the Golden Empire when his family seat was usurped. It took months for the news to reach him and, before he could return home, it was all over. For a while, he was still accepted into noble’s houses. Offering a travelling lord hospitality is a duty of every house, great and small. But as his depression grew he found himself living in terrible conditions, only sake able to take away his pain for any time. When he learned the Dragon clan had a price on his head he stopped announcing himself to local nobility and simply went from one tavern to the next, one bottle to the next…
+
+A full telling would take up whole volumes. All the stories of Hiroto being captured by slavers, escaping the fighting pits, conquering the impregnable Scarlet Fortress, defeating the horde of
+animated statues on Xiping, sneaking into the Blue Libraries to retrieve his Imperial Record to prove his noble lineage, crossing the western ocean with a pirate fleet and many more tales besides are passed on and whispered as folktales across the empire. Many do not even realise they are about the same man. One constant is that with every tale Hiroto makes new friends and allies, some drawn by his personality, some who owe him a debt and others who still have allegiance to the Eagle clan.

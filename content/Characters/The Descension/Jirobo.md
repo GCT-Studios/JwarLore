@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Jirobo is a great haiatake warrior, imbued with a natural talent in combat, he is able to judge his opponent’s subtle movements. The weight changed in their stance, the snatched glance that gives away their intent. This brave tengu is then able to adjust, either by counter attacking or building an iron clad defence of steel.

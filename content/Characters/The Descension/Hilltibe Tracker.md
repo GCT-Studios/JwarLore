@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The Hilltribe Trackers go out into the wilderness to hunt, their prey is the snow yeti that also occupy the mountainous region the Tengu call home. They perform rituals before embarking and brave the elements without clothes on their upper torsos. The yeti are fearsome opponents and thus the trackers specialize in ranged attacks. Hoping to bring down the monsters with a well-placed javelin long before the brutes can bring their overwhelming strength to bear.

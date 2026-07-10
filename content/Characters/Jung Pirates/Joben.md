@@ -1,0 +1,4 @@
+---
+source: Website
+---
+What Joben lacks in skill he makes up for in passion and enthusiasm, and because of this he was entrusted with an Arquebus. He’s shown a knack for keeping it clean, oiled, rust-free, and his powder is always dry, no matter the weather. He also has a penchant for heating up the lead shot before firing it at ships or enemies. This process helps his intended targets ignite and become wreathed in flames.

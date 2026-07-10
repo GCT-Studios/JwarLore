@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Ying-Jian is the eldest of the three brothers and naturally Shuohuang and Shenzhiqi look to him for leadership. At a nod from Ying-Jian the three operate in unison. He has always been an able swordsman however years of being on the run, hunted down, have worn away at his honour as much as his constitution. He has developed skills and techniques not taught in any koryu, but earned doing whatever it takes to survive. 

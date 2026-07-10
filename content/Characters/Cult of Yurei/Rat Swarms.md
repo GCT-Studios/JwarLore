@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The large rat swarm proves the old saying of safety in numbers, where one rat falls another rises to take its place. The normally self-serving animals unite as one entity to bite and tear at opponents of the Cult. Armour does little to protect against the swarming mass of a plague of rats and samurai have been seen swamped while hacking numerous rats to pieces.

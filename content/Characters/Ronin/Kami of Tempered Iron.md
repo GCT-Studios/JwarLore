@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The element of Metal encompasses not only the substance itself, but the fact that metallurgy and blacksmithing is needed to refine metal from simple ores. Metal is also the element of cogs and gears and represents advancement and technology. The Kami often take shapes of finished products of the smiths' art rather than amorphous masses of the element because of this, even when appearing to a Monk of Ro-Kan, the Kami will be a finished katana or system of gears.

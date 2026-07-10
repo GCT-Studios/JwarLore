@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Of the many types of Bakemono the Dai-Bakemono make the best shock troopers. Despite their low intelligence which can on occasion force their leaders to change their plans quickly they provide the Bakemono tribes with resilient, hardy and aggressive troops. When their fury is stoked they emit fearsome roars that echo around there deep subterranean caverns and strike fear into the hearts of any who are the subject of their aggression, rushing wildly to smash the foes of the tribes into the dirt.  

@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Few interact with The White Faced Fox; even Queen Tengoko does not converse with or command this Kitsune. The White Face has existed for a long time, and she appears only when a Kitsune has been found straying from their correct dharma. Once Tengoko passes judgement, nothing could prevent their fate. Now that the White Face has been seen in the Jwar Isles, it bodes ill. Wearing a blindfold, so she does not have to witness the pain and death she must cause to her own kind, she hunts them nonetheless. She can avoid even the enhanced and mystical senses of the Kitsune and strikes by severing their connection to Inari - their chief spirit- and their Ki before moving in for the finishing blow. None have ever survived being hunted by The White Faced Fox.

@@ -1,0 +1,5 @@
+---
+source: Website
+---
+Mina was born in a small fishing village on the coast below the Rokan mountains, where she loved to swim and play in the sea. She swam gracefully, even managing to use the force of the waves to propel her toward the beach at great speed, and by doing this, she could perform incredible stunts and crowd-pleasing acrobatics. The locals called her a 'water dancer.' Her life was one of sand, sea, and surf; she felt balar-,ced and harmonious and sought to learn more about these feelings and her place in the universe. That is why she went to the Temple of
+Ro-Kan, to learn more about the wonders of the world and the force that binds it all together. She has been given instruction and teaching, and because of her affinity with the ocean, she can summon sea water to aid in her and others' defence. Her powers are inextricably linked with the tides' pull and the moon's stages.

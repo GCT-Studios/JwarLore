@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The discovery of an ancient temple dedicated to the Snake God, Orochi, has set the Ito on a course of rebellion against the ruling Takashi Clan and their allies. At home on the jungle island of Izu, they practice honeyed words, laced with poisonous flattery, while plotting the downfall of their enemies. Imbued with the serpentine skills of speed, venom and cunning, the Ito Clan are a coiled snake around the throats of their enemies, squeezing ever tighter. Renowned for their duplicity and untrustworthiness, it would be unwise to turn your back on the Ito Clan as you’ll never know when they may strike, but strike they will.

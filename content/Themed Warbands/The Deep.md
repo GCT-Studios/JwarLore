@@ -1,0 +1,2 @@
+A drowning woman's heart torn asunder by her greedy husband’s apathy and avarice. Her unending rage becomes a terrible curse as she sinks slowly into the cold, dark embrace of the deep. But the raw power of time and tide will not let her die; they have work for her and those who once embodied a similar unrequited anger. A red pearl, the focus of her wrath, becomes a death sentence to whoever possesses it. What the seas have wrought, no one can tear asunder.  
+There is no escaping them, those of the deep or the red pearl. Betray the pirate queen at your peril!

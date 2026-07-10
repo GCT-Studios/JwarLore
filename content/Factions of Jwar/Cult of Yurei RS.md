@@ -1,0 +1,11 @@
+---
+source: Risen Sun rulebook
+title: Cult of Yurei
+---
+Born in shadow, of conspiracy, and a hate for all we hold dear, the power of the Cult is on the rise. Their ranks swell with the incorrigible, the incurable, and those, whom after a lifetime of bad decisions are forced to make the Yurei's Bargain, using their very souls as collateral in the vain attempt to skip death . . .for now at least.  
+Guided by a mysterious ‘puppet master’ called, Kato, and the sinister geisha, Ikiryo, the Cult of Yurei aim to destroy all we hold dear. Kato, adept at the dark arts has found a way to make the dead walk again by using his hand-crafted, porcelain masks as a medium to bring their souls back from beyond the pale. Together, Kato and Ikiryo rob the graves of their enemies, using the contents as a shambling army to reinforce their beliefs. But it’s not just the Risen or Kairai or the Witches that heed the call; there are other unmentionable creatures spawned in the very depths of our worst nightmares, that skitter and slither their way from the primordial to the streets and back alleyways of Jwar.  
+
+One of the Cult’s greatest strengths is the ability to hide in plain sight, to walk among us, from the humblest of huts to the most opulent of palaces, the Cult is everywhere, and nowhere, all at once. When the moon rides high, and the night is up, and from behind you comes the stutter of stealthy footsteps, will you turn and draw? Or run screaming headlong toward the light? Only time will tell, for as sure as the sun rises in the east if the Cult is not checked, then this is a choice we will all have to face one day.  
+
+Fear is just one of the many elements that the Cult employ in battle, as it can turn the most stalwart of samurai into a gibbering wreck. Then there is the dead that simply will not die! They rise and fight, rise and fight, compelled by the power of the Cult to serve, even in death. The Cult are skilled at draining an opponent’s Ki to use against them, to control them, to turn their will and weapon against their very own allies!  
+Then there are the swarms of rats to contend with, diseased, riddled with plague, but powerful enough to drag you down until they finish you off.

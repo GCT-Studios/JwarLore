@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Jinichi is a valuable member of The North Star who adds a slightly different approach to what they do. He has perfected fighting with a strange weapon that is a unique combination of blade and chain, and the whirring sound it makes as he spins it is often the last thing his enemies hear before they die. Because of its reach, it can quickly get between a samurai and his sword, thus breaching his defence leaving him open to attack. The blades are designed to cut and tear the flesh from his enemies bones, while the chain can immobilise the arms or legs of the unwary. Jinichi is no stranger to the poison stores of his night-clad clan, and he incorporates this into his fighting style by anointing his blades with deadly toxins. Jinichi is a lethal killing machine with a penchant for tactics and terror.

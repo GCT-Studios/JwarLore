@@ -1,0 +1,4 @@
+---
+source: Website
+---
+From childhood, the Samurai train to have self-discipline and a sense of duty, together with contempt for material goods, fear, pain and especially death. When combined with an unshakable devotion to their clan and lord they are the epitome of those who truly follow Michi.

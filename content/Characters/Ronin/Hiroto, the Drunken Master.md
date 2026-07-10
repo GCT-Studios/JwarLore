@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Hiroto has returned to the Jwar Isles, but he is in no fit state to either raise hope in those scattered forces of the Shiho who still harbour loyalties nor incite fear in those that took all that was precious from his family.

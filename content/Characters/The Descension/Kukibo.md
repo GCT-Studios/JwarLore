@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Kukibo, the apprentice, is eager to learn what the others of his species can teach him. He fights alongside others of the same feather, and because of his youth, he can keep up with those of the Blue Gale, long-known for their dazzling speed and flying prowess. Kukibo, a wielder of magic, a shugenja, can smite the Tengu’s foes from above with pure lightning as well as make the storm dance to his tune. 

@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The fury of the Chrome Sea, the shark is the apex predator beneath the waves and Arata is just as frightening above water. Dazzlingly fast, driven wild by the smell of blood he is a pure monster when unleashed. Whether savaging startled enemies with a maw of razor sharp teeth, or bowling then over with tremendous force he is a formidable warrior. Like all those changed by the great Kami Sumiyoshi Sanjin little is left of the man he once was but this does not matter in times of war.

@@ -1,0 +1,4 @@
+---
+source: Website
+---
+A man of excesses, Gengo was attracted to the Cult to satisfy his more base urges. He finds the sacrifice of others particularly appealing. One shouldn’t underestimate the difficulty in taking such a big man down.

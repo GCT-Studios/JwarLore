@@ -1,0 +1,3 @@
+A once-great scion of the Peacock clan, laid low by a curse of his own making.  
+Kokou will live forever. Many a man’s dream but for Kokou, a living nightmare of half life and many stages of undeath. This would be a sad tale already but Kokou has also damned the men under his command, sharing their Lord's fate and existing as wretches, their only companions now are creatures as fell and pathetic as they are.  
+Immortality also has its advantages however and Yurei can always make use of a combat trained group with nowhere else to turn.

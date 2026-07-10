@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Of the orphans lost to the void Souta is the perfect example of the physical manifestation of the spirit squatting within him, twisting and corrupting its host. Some say the children were already on the path to destruction others that they are merely innocent victims, lost like so many in the battle between good and evil, life and death. Souta is the embodiment of Sloth even when the spirit is not invoked. The Sloth is as slow and inevitable a killer as the void from which it came, victims held helplessly in the grip of fear or some unseen tether, those brave enough to confront the horror find themselves enveloped by its nothingness. 

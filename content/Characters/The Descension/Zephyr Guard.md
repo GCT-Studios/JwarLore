@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Each of the Tengu races serve a role within their society. The Suzume are the smallest of the warrior caste, but what they lack in size they make up for in speed and guile. These nimble and skilled bushi are an essential arm of the Tengu army, dodging and twisting in combat, as unpredictable as the zephyrs of wind from which they take their name. Their armour is as strong as it is light, the secret of its construction tightly held by only a few Haiatake smiths.

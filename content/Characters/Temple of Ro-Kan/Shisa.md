@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The guardians of the temples, these silent sentinels have stood for eons outside many a shrine or holy place. Now with the realised threat of another wave they have been reanimated from their long slumber. Always fighting in pairs, the links between the two run right to the very core of their being. In this time of strife, the return of the Shisa is a timely relief.

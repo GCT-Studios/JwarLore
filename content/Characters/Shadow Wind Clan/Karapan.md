@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Cultivated for generations, the Karapan are the ultimate beast of burden for the Kage Kaze Zoku. Many Worms are sacrificed in the long and arduous training program of each Karapan. The stalking, stealth of a panther combined with the vicious mobility of the crow leaves no prey safe. For those it hunts there can be no protection. For those that seek to obscure their intentions from the Grand Master there can be no hiding place.

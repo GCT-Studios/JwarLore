@@ -1,0 +1,4 @@
+---
+source: Website
+---
+The Ito Shugenja have been testing the limits of their clan’s connection to Orochi. Where the Shisai are granted power from the Kami, Shugenja take power and abuse their bond. As soon as the first followers became Hebimiman, the Shugenja tried to do the same. But where Orochi’s gifts are seamlessly blended into the supplicant to make a perfect predator, the Shugenja experiments often produce malformed piteous creatures they call Abominations. The Daimyo may have halted these blasphemous rites were it not for the animosity it creates within the clan, thus ensuring his power and position.

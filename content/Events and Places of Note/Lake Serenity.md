@@ -1,0 +1,4 @@
+---
+source: New Dawn rulebook
+---
+This vast lake found in the Ro-Kan Mountains is a site of almost unmatched natural beauty. Its name is somewhat ironic however as the torrent of water from the ‘Tenshi no Namida Falls’ drops half a league in a single stream before thundering into the lake. The raw power of water is evident for all to see and hear. One of the Temple’s five great places of pilgrimage, its monks come here to truly align their nature with the element of Water. Rumours suggest that Lake Serenity is home to a race of creatures half man half fish, as is their usual manner when asked about such things monks usually answer only in riddles.

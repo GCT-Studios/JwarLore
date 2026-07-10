@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Gashadokuro are mainly mindless, but somehow Satou Hatchi is not. It’s become apparent that not even his death can make him forget his extensive training and use of his now-mouldering battle gear and rusty weapons. Even more disturbing to his Yuta mistresses’ is that he has begun leading other skeletons into battle, much as he did in life! Usually, when the Yuta fashion a Gashadokura, only the bones break the earth’s skin to rise and serve again; the intellect and life spark of who they once were are long gone. Not so in Satou Hatchi’s case; there has been corruption in an already corrupt process!

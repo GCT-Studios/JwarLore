@@ -1,0 +1,4 @@
+---
+source: Website
+---
+Regarded by many within the clan as the most fearsome shadow crow in battle. Katsumi is a weapons master, with a relish for utilizing any at his disposal to spill the blood of those that oppose the Kage Kaze Zoku. He became an adept at an incredibly young age, his squad formed with little of the meticulousness of others. His fellow worms intimidated into joining him and in truth they weren’t ready. Katsumi led them in an open and frontal attack on an adept, of some experience, his bloody assault lasting mere moments as the members of his squad looked on. They didn’t last long as adepts, their weaknesses obvious to the worms that remained. Katsumi however was never the subject of an attack by a worm squad, his fearsome reputation well-earned and unquestioned.

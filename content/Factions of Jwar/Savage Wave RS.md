@@ -1,0 +1,12 @@
+---
+source: Risen Sun rulebook
+title: Savage Wave
+---
+Those that have faced it, and survived, call it the ‘Savage Wave’, a wave that destroys virtually everything in its path. But where exactly is this ‘wave’ from? No one is certain. For how can creatures of myth and mystery walk the Isles of Jwar? What does it portend? These are questions being asked in every corner of the isles, from the docks to the temples, and everywhere in-between.  
+The Savage Wave consists of hordes of twilight creatures from the netherworld called bakemono, being driven ever on, by the command of towering beasts known as oni, whose strength is unquestionable, so too is their fury, ferocity, and strategy in battle. There is an element of extreme cunning in their ways, not brutish or bestial, but careful and considered. Bakemono can vary in size: from smallest to largest it is: sho bakemono, then dai bakemono, and finally rinsho.  
+The oni, on the other hand, are possibly the most monstrous creatures on the Isles. They have tremendous strength and are capable of killing a heavily armoured samurai with a single, well-timed blow . But all this is surface; what lies beneath that sun-reddened skin remains a mystery, and their motives are just as unclear. A recent expedition to the Blue Library, found in the heart of the Empire, has revealed ancient scrolls that make mention of these curious, otherworldly beings many, many, years ago. It seems that this may not be the first Savage Wave to come to Jwar after all.  
+
+The Savage Wave is bred for war, and that’s just what bakemono do, they breed . This allows them to creep from the shadows, and the netherworld, to swell the numbers of their already prodigious battle-brethren. They employ cunning snares and traps, as well as deadly poisons distilled from mushrooms to thwart their enemies in combat. Being able to ride giant bats certainly gives them a great advantage, as well as using the smaller ones to exsanguinate their enemies.  
+The bakemono rely on their abundance while the oni are limited in number.
+
+Treading the soil of this strange world, the oni and their packs of slavering kaihei, rampage with seeming impunity, causing massive amounts of mayhem wherever they go. The oni are impetuous, aggressive, and are filled with a blood-red rage that compels them to attack in a berserk frenzy using whatever weapon is at hand, even if it is the closest bakemono!

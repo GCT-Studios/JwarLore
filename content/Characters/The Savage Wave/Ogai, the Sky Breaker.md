@@ -1,0 +1,5 @@
+---
+source: Website
+---
+All of this has happened before and will happen again, so say the unaging sages in The Temple of Ro-Kan’s tower of eternal wisdom. The Temple has fought and defeated The Savage Wave before. The monks of old sealed the Oni world of Krazzor away from their own, but some of that old invading force remained here, trapped in the Jwar Isles. There are known to be precisely a dozen Oni Ancients, but The Temple knows only four names.  
+Ogai may be seen as the leader of the Twelve Ancients, but that may be human minds projecting their own notions onto an inscrutable culture. Ma’Kid, Taburo, and Urian follow Ogai, all recognisable by their greyer, weathered skin. Now that the current Savage Wave has been reunited with the Bakemono of the Jwar underworld, the fate of the Jwar Isles can only turn toward disaster. Ogai is the biggest Oni seen this age since Rashka, The Devastator

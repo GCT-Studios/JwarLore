@@ -1,0 +1,4 @@
+---
+source: Website
+---
+While Akuba has been perfecting her art and making more powerful Gasadokuro, such as Hatchi, she has also learned to make simpler skeletal servants.  Akuba can create many of these, and she delights in imbuing the animating spirit with a duty to protect her coven. Unknown to Akuba, however, the poor quality of the remains and the intractability of the kami have left these creations with a fatal flaw, one that means any lucky blow may sever the connection between the animating force and the remains, destroying the physical presence and banishing the dark animus.

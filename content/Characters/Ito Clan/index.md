@@ -1,0 +1,5 @@
+---
+source: Website
+title: Ito Clan
+---
+The Ito have long been the laughing stock of the ruling clans. Never quite able to understand that it is their own flaws which hold their greater ambitions back. Being untrustworthy is synonymous with the Ito in the Jwar Isles; their support of the Shiho’s rise to power followed by their treacherous role in the Dragon Wars against the very same clan, highlights their fickle nature. Now though the Ito on the island of Izu have gone through a transformation, their alliance with an age old and powerful Kami has imbued them with a new found strength. If it was the Kami that caused the snake like changes or whether it has simply exaggerated the Ito’s natural affinity is unknown. What is sure is that the Ito finally have the power to rise against the other clans and avenge the mockery and mistreatment they have suffered.
