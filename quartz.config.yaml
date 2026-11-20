@@ -269,6 +269,7 @@ plugins:
     enabled: true
     options:
       theme: praxis
+      mode: dark
 layout:
   groups:
     toolbar:
