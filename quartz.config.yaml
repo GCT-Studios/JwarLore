@@ -100,7 +100,7 @@ plugins:
     enabled: false
     order: 85
   - source: github:quartz-community/hard-line-breaks
-    enabled: true
+    enabled: false
     order: 90
   - source: github:quartz-community/ox-hugo
     enabled: false
@@ -265,10 +265,7 @@ plugins:
       darkMode: auto
       exportPadding: 20
     order: 50
-  - source:
-      name: quartz-themes
-      repo: github:saberzero1/quartz-themes
-      subdir: plugin
+  - source: "@quartz-themes/core"
     enabled: true
     options:
       theme: praxis
