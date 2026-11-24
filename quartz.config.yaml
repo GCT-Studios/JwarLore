@@ -268,7 +268,7 @@ plugins:
   - source: "@quartz-themes/core"
     enabled: true
     options:
-      theme: praxis
+      theme: abecedarium
       mode: dark
 layout:
   groups:
